@@ -1,10 +1,16 @@
-<p align="center"><img src="https://camo.githubusercontent.com/b0da1d92a8fb5d59e8d9ed1feac61f85e15f4bb6/68747470733a2f2f6d656469612e67697068792e636f6d2f6d656469612f4d654a674233794d4d774961486d4b44347a2f67697068792e676966" alt="Hello World" width="30%" /></p>
+# Olá, Mundo!
 
----
+Eu realmente não faço ideia de como você veio parar aqui, mas vou tentar mostrar um pouquinho de mim pra você.
 
-````bash
-> help --info
-> Software engineer passionate about software architecture.
-````
+Meu nome é Victor Otávio. Sou um engenheiro de software apaixonado por arquitetura de software (sim, são coisas diferentes).
 
-![Victor Ferreira's GitHub stats](https://github-readme-stats.vercel.app/api?username=vctrtvfrrr&hide_title=true)
+Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab, onde meu trabalho é, basicamente, apertar botões.
+
+## Informações
+
+<img align="left" src="octocat.png" alt="" width="150" />
+
+- **Nome:** Victor Otávio Ferreira
+- **Idade:** 27 anos
+- **Localização:** Curitiba/PR
+- **Contato:** [![](https://img.shields.io/badge/Email-victor@otavioferreira.com.br-red)](mailto:victor@otavioferreira.com.br) [![](http://img.shields.io/badge/GitHub-vctrtvfrrr-24292e)](https://github.com/vctrtvfrrr) [![](http://img.shields.io/badge/GitLab-vctrtvfrrr-ec5d16)](https://github.com/vctrtvfrrr) [![](https://img.shields.io/badge/LinkedIn-victorotavio-blue)](https://www.linkedin.com/in/victorotavio/) [![](https://img.shields.io/badge/Twitter-@vctrtvfrrr-blue)](https://twitter.com/vctrtvfrrr)
