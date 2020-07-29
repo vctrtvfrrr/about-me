@@ -6,4 +6,4 @@ Meu nome é Victor Otávio. Sou um engenheiro de software apaixonado por arquite
 
 Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab, onde meu trabalho é, basicamente, apertar botões.
 
-<img align="left" src="https://github.com/vctrtvfrrr/vctrtvfrrr/raw/master/octocat.png" alt="" width="150" />
+<img align="left" src="https://github.com/vctrtvfrrr/vctrtvfrrr/raw/master/octocat.png" alt="" width="175" />
