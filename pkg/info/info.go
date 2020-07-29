@@ -101,7 +101,7 @@ func generateBadgesList(badges []Badge) string {
 		)
 
 		if b.Linebreak {
-			badge += "\n"
+			badge += "  \n"
 		} else {
 			badge += " "
 		}
