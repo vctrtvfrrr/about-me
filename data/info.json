@@ -1,0 +1,44 @@
+{
+    "info": {
+        "name": "Victor Otávio Ferreira",
+        "birthday": "1992-08",
+        "location": "Curitiba/PR"
+    },
+    "badges": [
+        {
+            "label": "LinkedIn",
+            "value": "victorotavio",
+            "color": "blue",
+            "link": "https://www.linkedin.com/in/victorotavio/",
+            "linebreak": false
+        },
+        {
+            "label": "Twitter",
+            "value": "@vctrtvfrrr",
+            "color": "blue",
+            "link": "https://twitter.com/vctrtvfrrr",
+            "linebreak": true
+        },
+        {
+            "label": "GitHub",
+            "value": "vctrtvfrrr",
+            "color": "24292e",
+            "link": "https://github.com/vctrtvfrrr",
+            "linebreak": false
+        },
+        {
+            "label": "GitLab",
+            "value": "vctrtvfrrr",
+            "color": "ec5d16",
+            "link": "https://gitlab.com/vctrtvfrrr",
+            "linebreak": true
+        },
+        {
+            "label": "Email",
+            "value": "victor@otavioferreira.com.br",
+            "color": "red",
+            "link": "mailto:victor@otavioferreira.com.br",
+            "linebreak": true
+        }
+    ]
+}
