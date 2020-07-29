@@ -1,0 +1,48 @@
+{
+    "books": [
+        {
+            "title": "Ensinando O Trivium - Volume 1",
+            "author": "Harvey E Laurie Bluedorn"
+        },
+        {
+            "title": "A Arte da Guerra",
+            "author": "Sun Tzu"
+        },
+        {
+            "title": "O Príncipe",
+            "author": "Nicolau Maquiavel"
+        },
+        {
+            "title": "D. Leopoldina: a história não contada: A mulher que arquitetou a Independência do Brasil",
+            "author": "Paulo Rezzutti"
+        },
+        {
+            "title": "1822 – Como um homem sábio, uma princesa triste e um escocês louco por dinheiro ajudaram dom Pedro a criar o Brasil - um país que tinha tudo para dar errado",
+            "author": "Laurentino Gomes"
+        },
+        {
+            "title": "1808 – Como uma rainha louca, um príncipe medroso e uma corte corrupta enganaram Napoleão e mudaram a História de Portugal e do Brasil",
+            "author": "Laurentino Gomes"
+        },
+        {
+            "title": "1565: Enquanto o Brasil nascia: A aventura de portugueses, franceses, índios e negros na fundação do país",
+            "author": "Pedro Doria"
+        },
+        {
+            "title": "O Mínimo que Você Precisa Saber para não Ser um Idiota",
+            "author": "Olavo de Carvalho"
+        },
+        {
+            "title": "Odisséia",
+            "author": "Homero (trad. Carlos Alberto Nunes)"
+        },
+        {
+            "title": "O imbecil coletivo",
+            "author": "Olavo de Carvalho"
+        },
+        {
+            "title": "A história do Brasil para quem tem pressa: Dos bastidores do descobrimento à crise de 2015 em 200 páginas!",
+            "author": "Marcos Costa"
+        }
+    ]
+}
