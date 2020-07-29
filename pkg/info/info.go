@@ -49,7 +49,7 @@ func getAge(birthday string) string {
 		years--
 	}
 
-	return strconv.Itoa(years)
+	return strconv.Itoa(years) + " anos"
 }
 
 // Gets the adjusted date of birth to work around leap year differences.
