@@ -14,9 +14,9 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 - **Idade:** 27 anos
 - **Localização:** Curitiba/PR
 
-[![](https://img.shields.io/badge/LinkedIn-victorotavio-blue)](https://www.linkedin.com/in/victorotavio/) [![](https://img.shields.io/badge/Twitter-@vctrtvfrrr-blue)](https://twitter.com/vctrtvfrrr)
-[![](https://img.shields.io/badge/GitHub-vctrtvfrrr-24292e)](https://github.com/vctrtvfrrr) [![](https://img.shields.io/badge/GitLab-vctrtvfrrr-ec5d16)](https://gitlab.com/vctrtvfrrr)
-[![](https://img.shields.io/badge/Email-victor@otavioferreira.com.br-red)](mailto:victor@otavioferreira.com.br)
+[![](https://img.shields.io/badge/LinkedIn-victorotavio-blue)](https://www.linkedin.com/in/victorotavio/) [![](https://img.shields.io/badge/Twitter-@vctrtvfrrr-blue)](https://twitter.com/vctrtvfrrr)  
+[![](https://img.shields.io/badge/GitHub-vctrtvfrrr-24292e)](https://github.com/vctrtvfrrr) [![](https://img.shields.io/badge/GitLab-vctrtvfrrr-ec5d16)](https://gitlab.com/vctrtvfrrr)  
+[![](https://img.shields.io/badge/Email-victor@otavioferreira.com.br-red)](mailto:victor@otavioferreira.com.br)  
 
 ## Curiosidades sobre mim
 
@@ -49,4 +49,4 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ---
 
-🚀 **Última atualização:** 29-07-2020 18:33:38 UTC
+🚀 **Última atualização:** 29-07-2020 18:35:27 UTC
