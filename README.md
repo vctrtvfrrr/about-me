@@ -11,7 +11,7 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 ## Informações
 
 - **Nome:** Victor Otávio Ferreira
-- **Idade:** 27 anos
+- **Idade:** 28 anos
 - **Localização:** Curitiba/PR
 
 [![](https://img.shields.io/badge/LinkedIn-victorotavio-blue)](https://www.linkedin.com/in/victorotavio/) [![](https://img.shields.io/badge/Twitter-@vctrtvfrrr-blue)](https://twitter.com/vctrtvfrrr)  
@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                               🎧 Artistas da semana                               |                      📚 Últimos livros lidos                      |
-|-----------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Muse](https://www.last.fm/music/Muse)                                         | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Mythos](https://www.last.fm/music/Mythos)                                     | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [O Teatro Mágico](https://www.last.fm/music/O+Teatro+M%C3%A1gico)              | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana)                  | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Milton Nascimento](https://www.last.fm/music/Milton+Nascimento)               | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                             | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Sixpence None the Richer](https://www.last.fm/music/Sixpence+None+the+Richer) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Dire Straits](https://www.last.fm/music/Dire+Straits)                         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Green Day](https://www.last.fm/music/Green+Day)                               | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Linkin Park](https://www.last.fm/music/Linkin+Park)                          | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                            🎧 Artistas da semana                             |                      📚 Últimos livros lidos                      |
+|------------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Muse](https://www.last.fm/music/Muse)                                    | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Mythos](https://www.last.fm/music/Mythos)                                | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana)             | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Milton Nascimento](https://www.last.fm/music/Milton+Nascimento)          | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [O Teatro Mágico](https://www.last.fm/music/O+Teatro+M%C3%A1gico)         | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                        | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Dire Straits](https://www.last.fm/music/Dire+Straits)                    | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Green Day](https://www.last.fm/music/Green+Day)                          | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Linkin Park](https://www.last.fm/music/Linkin+Park)                      | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Engenheiros Do Hawaii](https://www.last.fm/music/Engenheiros+Do+Hawaii) | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 01-08-2020 02:27:03 UTC
+🚀 **Última atualização:** 02-08-2020 02:27:03 UTC
