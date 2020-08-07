@@ -37,16 +37,16 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |--------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana)   | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [Stênio Marcius](https://www.last.fm/music/St%C3%AAnio+Marcius) | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Green Day](https://www.last.fm/music/Green+Day)                | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Muse](https://www.last.fm/music/Muse)                          | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)              | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Raimundos](https://www.last.fm/music/Raimundos)                | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Catedral](https://www.last.fm/music/Catedral)                  | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Dire Straits](https://www.last.fm/music/Dire+Straits)          | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 3º [Muse](https://www.last.fm/music/Muse)                          | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)              | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Raimundos](https://www.last.fm/music/Raimundos)                | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Catedral](https://www.last.fm/music/Catedral)                  | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Dire Straits](https://www.last.fm/music/Dire+Straits)          | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Green Day](https://www.last.fm/music/Green+Day)                | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 | 9º [Jason Mraz](https://www.last.fm/music/Jason+Mraz)              | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 | 10º [Linkin Park](https://www.last.fm/music/Linkin+Park)           | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 06-08-2020 02:27:06 UTC
+🚀 **Última atualização:** 07-08-2020 02:27:03 UTC
