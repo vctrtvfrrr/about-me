@@ -41,12 +41,12 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 4º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)              | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Green Day](https://www.last.fm/music/Green+Day)                | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [Raimundos](https://www.last.fm/music/Raimundos)                | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Catedral](https://www.last.fm/music/Catedral)                  | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Dire Straits](https://www.last.fm/music/Dire+Straits)          | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 7º [Alan Jackson](https://www.last.fm/music/Alan+Jackson)          | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Catedral](https://www.last.fm/music/Catedral)                  | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 | 9º [Coldplay](https://www.last.fm/music/Coldplay)                  | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Jason Mraz](https://www.last.fm/music/Jason+Mraz)             | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 10º [Dire Straits](https://www.last.fm/music/Dire+Straits)         | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 08-08-2020 02:27:11 UTC
+🚀 **Última atualização:** 09-08-2020 02:27:02 UTC
