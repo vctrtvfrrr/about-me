@@ -36,17 +36,17 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |                        🎧 Artistas da semana                        |                      📚 Últimos livros lidos                      |
 |---------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Alan Jackson](https://www.last.fm/music/Alan+Jackson)           | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Tim Maia](https://www.last.fm/music/Tim+Maia)                   | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Coldplay](https://www.last.fm/music/Coldplay)                   | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Milton Nascimento](https://www.last.fm/music/Milton+Nascimento) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Muse](https://www.last.fm/music/Muse)                           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Paulo Sérgio](https://www.last.fm/music/Paulo+S%C3%A9rgio)      | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Belchior](https://www.last.fm/music/Belchior)                   | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Dire Straits](https://www.last.fm/music/Dire+Straits)           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Fagner](https://www.last.fm/music/Fagner)                       | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Josh Garrels](https://www.last.fm/music/Josh+Garrels)          | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 2º [Milton Nascimento](https://www.last.fm/music/Milton+Nascimento) | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Rush](https://www.last.fm/music/Rush)                           | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [The Beatles](https://www.last.fm/music/The+Beatles)             | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [The Doors](https://www.last.fm/music/The+Doors)                 | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Coldplay](https://www.last.fm/music/Coldplay)                   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Guns N' Roses](https://www.last.fm/music/Guns+N%27+Roses)       | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Led Zeppelin](https://www.last.fm/music/Led+Zeppelin)           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Matt Papa](https://www.last.fm/music/Matt+Papa)                 | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Muse](https://www.last.fm/music/Muse)                          | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 13-08-2020 02:27:02 UTC
+🚀 **Última atualização:** 14-08-2020 02:27:02 UTC
