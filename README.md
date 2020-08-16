@@ -35,18 +35,18 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                                   🎧 Artistas da semana                                   |                      📚 Últimos livros lidos                      |
 |-------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Alan Jackson](https://www.last.fm/music/Alan+Jackson)                                 | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 1º [Queen](https://www.last.fm/music/Queen)                                               | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [The Rolling Stones](https://www.last.fm/music/The+Rolling+Stones)                     | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Queen](https://www.last.fm/music/Queen)                                               | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [The Beatles](https://www.last.fm/music/The+Beatles)                                   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 3º [The Beatles](https://www.last.fm/music/The+Beatles)                                   | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Led Zeppelin](https://www.last.fm/music/Led+Zeppelin)                                 | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [The Doors](https://www.last.fm/music/The+Doors)                                       | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [Creedence Clearwater Revival](https://www.last.fm/music/Creedence+Clearwater+Revival) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Eric Clapton](https://www.last.fm/music/Eric+Clapton)                                 | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Led Zeppelin](https://www.last.fm/music/Led+Zeppelin)                                 | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Dire Straits](https://www.last.fm/music/Dire+Straits)                                 | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Lynyrd Skynyrd](https://www.last.fm/music/Lynyrd+Skynyrd)                            | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 7º [Dire Straits](https://www.last.fm/music/Dire+Straits)                                 | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Eric Clapton](https://www.last.fm/music/Eric+Clapton)                                 | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Lynyrd Skynyrd](https://www.last.fm/music/Lynyrd+Skynyrd)                             | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Aerosmith](https://www.last.fm/music/Aerosmith)                                      | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 15-08-2020 02:27:03 UTC
+🚀 **Última atualização:** 16-08-2020 02:27:04 UTC
