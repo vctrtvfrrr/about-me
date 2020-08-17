@@ -49,4 +49,4 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ---
 
-🚀 **Última atualização:** 16-08-2020 02:27:04 UTC
+🚀 **Última atualização:** 17-08-2020 02:27:03 UTC
