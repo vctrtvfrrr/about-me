@@ -38,15 +38,15 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 1º [Shaman](https://www.last.fm/music/Shaman)                             | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [Josh Garrels](https://www.last.fm/music/Josh+Garrels)                 | A Arte da Guerra	–	_Sun Tzu_                                        |
 | 3º [Kings of Convenience](https://www.last.fm/music/Kings+of+Convenience) | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Eric Clapton](https://www.last.fm/music/Eric+Clapton)                 | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Joni Mitchell](https://www.last.fm/music/Joni+Mitchell)               | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Catedral](https://www.last.fm/music/Catedral)                         | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Daft Punk](https://www.last.fm/music/Daft+Punk)                       | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Laura Pausini](https://www.last.fm/music/Laura+Pausini)               | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [The Cranberries](https://www.last.fm/music/The+Cranberries)           | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Jason Mraz](https://www.last.fm/music/Jason+Mraz)                    | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 4º [Laura Pausini](https://www.last.fm/music/Laura+Pausini)               | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana)          | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Joni Mitchell](https://www.last.fm/music/Joni+Mitchell)               | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Catedral](https://www.last.fm/music/Catedral)                         | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Eric Clapton](https://www.last.fm/music/Eric+Clapton)                 | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Daft Punk](https://www.last.fm/music/Daft+Punk)                       | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [The Cranberries](https://www.last.fm/music/The+Cranberries)          | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 21-08-2020 02:27:02 UTC
+🚀 **Última atualização:** 22-08-2020 02:27:03 UTC
