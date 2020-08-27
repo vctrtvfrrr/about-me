@@ -35,18 +35,18 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                                      🎧 Artistas da semana                                       |                      📚 Últimos livros lidos                      |
 |--------------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Shaman](https://www.last.fm/music/Shaman)                                                    | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 1º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers)                      | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [Josh Garrels](https://www.last.fm/music/Josh+Garrels)                                        | A Arte da Guerra	–	_Sun Tzu_                                        |
 | 3º [Kings of Convenience](https://www.last.fm/music/Kings+of+Convenience)                        | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana)                                 | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Laura Pausini](https://www.last.fm/music/Laura+Pausini)                                      | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Ленинград](https://www.last.fm/music/%D0%9B%D0%B5%D0%BD%D0%B8%D0%BD%D0%B3%D1%80%D0%B0%D0%B4) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Raul Seixas](https://www.last.fm/music/Raul+Seixas)                                          | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Linkin Park](https://www.last.fm/music/Linkin+Park)                                          | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Milton Nascimento](https://www.last.fm/music/Milton+Nascimento)                              | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Mythos](https://www.last.fm/music/Mythos)                                                   | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 5º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab)                               | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Ruth Moody](https://www.last.fm/music/Ruth+Moody)                                            | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Laura Pausini](https://www.last.fm/music/Laura+Pausini)                                      | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Ленинград](https://www.last.fm/music/%D0%9B%D0%B5%D0%BD%D0%B8%D0%BD%D0%B3%D1%80%D0%B0%D0%B4) | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Raul Seixas](https://www.last.fm/music/Raul+Seixas)                                          | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Milton Nascimento](https://www.last.fm/music/Milton+Nascimento)                             | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 25-08-2020 02:27:03 UTC
+🚀 **Última atualização:** 27-08-2020 02:27:03 UTC
