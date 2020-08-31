@@ -41,12 +41,12 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 4º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab)                | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Ruth Moody](https://www.last.fm/music/Ruth+Moody)                             | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [Raul Seixas](https://www.last.fm/music/Raul+Seixas)                           | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Mythos](https://www.last.fm/music/Mythos)                                     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Raimundos](https://www.last.fm/music/Raimundos)                               | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 7º [Raimundos](https://www.last.fm/music/Raimundos)                               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Skank](https://www.last.fm/music/Skank)                                       | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 | 9º [Shaman](https://www.last.fm/music/Shaman)                                     | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 | 10º [Pitty](https://www.last.fm/music/Pitty)                                      | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 30-08-2020 02:27:02 UTC
+🚀 **Última atualização:** 31-08-2020 02:27:02 UTC
