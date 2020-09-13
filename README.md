@@ -39,14 +39,14 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 2º [Zé Ramalho](https://www.last.fm/music/Z%C3%A9+Ramalho)        | A Arte da Guerra	–	_Sun Tzu_                                        |
 | 3º [Aerosmith](https://www.last.fm/music/Aerosmith)               | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Zeca Baleiro](https://www.last.fm/music/Zeca+Baleiro)         | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Ventania](https://www.last.fm/music/Ventania)                 | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [U2](https://www.last.fm/music/U2)                             | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 5º [Arctic Monkeys](https://www.last.fm/music/Arctic+Monkeys)     | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Apocalyptica](https://www.last.fm/music/Apocalyptica)         | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 | 7º [America](https://www.last.fm/music/America)                   | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Anathema](https://www.last.fm/music/Anathema)                 | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Uns e Outros](https://www.last.fm/music/Uns+e+Outros)         | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 8º [Antonio Vivaldi](https://www.last.fm/music/Antonio+Vivaldi)   | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Anathema](https://www.last.fm/music/Anathema)                 | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 | 10º [Alceu Valença](https://www.last.fm/music/Alceu+Valen%C3%A7a) | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 11-09-2020 02:27:02 UTC
+🚀 **Última atualização:** 13-09-2020 02:27:02 UTC
