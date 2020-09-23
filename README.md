@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                        🎧 Artistas da semana                        |                      📚 Últimos livros lidos                      |
-|---------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Avril Lavigne](https://www.last.fm/music/Avril+Lavigne)         | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Band of Horses](https://www.last.fm/music/Band+of+Horses)       | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Blind Guardian](https://www.last.fm/music/Blind+Guardian)       | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Audrey Assad](https://www.last.fm/music/Audrey+Assad)           | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Belchior](https://www.last.fm/music/Belchior)                   | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Bee Gees](https://www.last.fm/music/Bee+Gees)                   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [blink-182](https://www.last.fm/music/blink-182)                 | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Luciano Pavarotti](https://www.last.fm/music/Luciano+Pavarotti) | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [U2](https://www.last.fm/music/U2)                               | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Black Eyed Peas](https://www.last.fm/music/Black+Eyed+Peas)    | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                               🎧 Artistas da semana                               |                      📚 Últimos livros lidos                      |
+|-----------------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Band of Horses](https://www.last.fm/music/Band+of+Horses)                     | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Blind Guardian](https://www.last.fm/music/Blind+Guardian)                     | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Bob Marley & The Wailers](https://www.last.fm/music/Bob+Marley+&+The+Wailers) | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [blink-182](https://www.last.fm/music/blink-182)                               | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Belchior](https://www.last.fm/music/Belchior)                                 | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Bee Gees](https://www.last.fm/music/Bee+Gees)                                 | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Luciano Pavarotti](https://www.last.fm/music/Luciano+Pavarotti)               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [U2](https://www.last.fm/music/U2)                                             | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Brooke Fraser](https://www.last.fm/music/Brooke+Fraser)                       | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Avril Lavigne](https://www.last.fm/music/Avril+Lavigne)                      | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 22-09-2020 02:27:02 UTC
+🚀 **Última atualização:** 23-09-2020 02:27:02 UTC
