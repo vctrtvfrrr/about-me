@@ -35,18 +35,18 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                               🎧 Artistas da semana                               |                      📚 Últimos livros lidos                      |
 |-----------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Blind Guardian](https://www.last.fm/music/Blind+Guardian)                     | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Brooke Fraser](https://www.last.fm/music/Brooke+Fraser)                       | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 1º [Brooke Fraser](https://www.last.fm/music/Brooke+Fraser)                       | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Catedral](https://www.last.fm/music/Catedral)                                 | A Arte da Guerra	–	_Sun Tzu_                                        |
 | 3º [Bob Marley & The Wailers](https://www.last.fm/music/Bob+Marley+&+The+Wailers) | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [blink-182](https://www.last.fm/music/blink-182)                               | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Catedral](https://www.last.fm/music/Catedral)                                 | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 4º [Blind Guardian](https://www.last.fm/music/Blind+Guardian)                     | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [blink-182](https://www.last.fm/music/blink-182)                               | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [Luciano Pavarotti](https://www.last.fm/music/Luciano+Pavarotti)               | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 | 7º [Capital Inicial](https://www.last.fm/music/Capital+Inicial)                   | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Black Eyed Peas](https://www.last.fm/music/Black+Eyed+Peas)                   | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Bob Dylan](https://www.last.fm/music/Bob+Dylan)                               | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Britney Spears](https://www.last.fm/music/Britney+Spears)                    | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 8º [Bob Dylan](https://www.last.fm/music/Bob+Dylan)                               | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Britney Spears](https://www.last.fm/music/Britney+Spears)                     | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Bee Gees](https://www.last.fm/music/Bee+Gees)                                | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 25-09-2020 02:27:02 UTC
+🚀 **Última atualização:** 26-09-2020 02:27:03 UTC
