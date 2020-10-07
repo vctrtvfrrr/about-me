@@ -36,17 +36,17 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |                                   🎧 Artistas da semana                                   |                      📚 Últimos livros lidos                      |
 |-------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [The Cranberries](https://www.last.fm/music/The+Cranberries)                           | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Coldplay](https://www.last.fm/music/Coldplay)                                         | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Catedral](https://www.last.fm/music/Catedral)                                         | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Daft Punk](https://www.last.fm/music/Daft+Punk)                                       | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Creedence Clearwater Revival](https://www.last.fm/music/Creedence+Clearwater+Revival) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Creed](https://www.last.fm/music/Creed)                                               | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Criolo](https://www.last.fm/music/Criolo)                                             | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Antonio Vivaldi](https://www.last.fm/music/Antonio+Vivaldi)                           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Céline Dion](https://www.last.fm/music/C%C3%A9line+Dion)                              | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Chico Buarque](https://www.last.fm/music/Chico+Buarque)                              | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 2º [Daft Punk](https://www.last.fm/music/Daft+Punk)                                       | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Creedence Clearwater Revival](https://www.last.fm/music/Creedence+Clearwater+Revival) | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Creed](https://www.last.fm/music/Creed)                                               | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Criolo](https://www.last.fm/music/Criolo)                                             | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Céline Dion](https://www.last.fm/music/C%C3%A9line+Dion)                              | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Detonautas Roque Clube](https://www.last.fm/music/Detonautas+Roque+Clube)             | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [David Gilmour](https://www.last.fm/music/David+Gilmour)                               | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Coldplay](https://www.last.fm/music/Coldplay)                                         | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [CPM 22](https://www.last.fm/music/CPM+22)                                            | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 05-10-2020 02:27:03 UTC
+🚀 **Última atualização:** 07-10-2020 02:27:04 UTC
