@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                             🎧 Artistas da semana                             |                      📚 Últimos livros lidos                      |
-|-------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Dire Straits](https://www.last.fm/music/Dire+Straits)                     | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Detonautas Roque Clube](https://www.last.fm/music/Detonautas+Roque+Clube) | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Djavan](https://www.last.fm/music/Djavan)                                 | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Foster the People](https://www.last.fm/music/Foster+the+People)           | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Franz Liszt](https://www.last.fm/music/Franz+Liszt)                       | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Frédéric Chopin](https://www.last.fm/music/Fr%C3%A9d%C3%A9ric+Chopin)     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [The Fray](https://www.last.fm/music/The+Fray)                             | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Gioacchino Rossini](https://www.last.fm/music/Gioacchino+Rossini)         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Josh Garrels](https://www.last.fm/music/Josh+Garrels)                     | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                        | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                                   🎧 Artistas da semana                                    |                      📚 Últimos livros lidos                      |
+|--------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Dire Straits](https://www.last.fm/music/Dire+Straits)                                  | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Gabriel O Pensador](https://www.last.fm/music/Gabriel+O+Pensador)                      | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Green Day](https://www.last.fm/music/Green+Day)                                        | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Frédéric Chopin](https://www.last.fm/music/Fr%C3%A9d%C3%A9ric+Chopin)                  | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Djavan](https://www.last.fm/music/Djavan)                                              | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Foster the People](https://www.last.fm/music/Foster+the+People)                        | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Franz Liszt](https://www.last.fm/music/Franz+Liszt)                                    | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [The Fray](https://www.last.fm/music/The+Fray)                                          | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Fruto Sagrado](https://www.last.fm/music/Fruto+Sagrado)                                | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Fruto Sagrado e Henri Passos](https://www.last.fm/music/Fruto+Sagrado+e+Henri+Passos) | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 13-10-2020 02:27:02 UTC
+🚀 **Última atualização:** 15-10-2020 02:27:06 UTC
