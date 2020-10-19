@@ -38,15 +38,15 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 1º [Jason Mraz](https://www.last.fm/music/Jason+Mraz)                     | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [Green Day](https://www.last.fm/music/Green+Day)                       | A Arte da Guerra	–	_Sun Tzu_                                        |
 | 3º [Gabriel O Pensador](https://www.last.fm/music/Gabriel+O+Pensador)     | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Heavy Metal Perse](https://www.last.fm/music/Heavy+Metal+Perse)       | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Frédéric Chopin](https://www.last.fm/music/Fr%C3%A9d%C3%A9ric+Chopin) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Djavan](https://www.last.fm/music/Djavan)                             | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Foster the People](https://www.last.fm/music/Foster+the+People)       | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Guns N' Roses](https://www.last.fm/music/Guns+N%27+Roses)             | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Jack Johnson](https://www.last.fm/music/Jack+Johnson)                 | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [James Blunt](https://www.last.fm/music/James+Blunt)                  | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 4º [Jon Foreman](https://www.last.fm/music/Jon+Foreman)                   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Heavy Metal Perse](https://www.last.fm/music/Heavy+Metal+Perse)       | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Frédéric Chopin](https://www.last.fm/music/Fr%C3%A9d%C3%A9ric+Chopin) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Kansas](https://www.last.fm/music/Kansas)                             | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Joni Mitchell](https://www.last.fm/music/Joni+Mitchell)               | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Djavan](https://www.last.fm/music/Djavan)                             | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Foster the People](https://www.last.fm/music/Foster+the+People)      | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 17-10-2020 02:27:03 UTC
+🚀 **Última atualização:** 19-10-2020 02:27:02 UTC
