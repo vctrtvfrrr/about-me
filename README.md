@@ -35,18 +35,18 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                        🎧 Artistas da semana                        |                      📚 Últimos livros lidos                      |
 |---------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Milton Nascimento](https://www.last.fm/music/Milton+Nascimento) | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Muse](https://www.last.fm/music/Muse)                           | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Palavrantiga](https://www.last.fm/music/Palavrantiga)           | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Luiz Gonzaga](https://www.last.fm/music/Luiz+Gonzaga)           | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Jon Foreman](https://www.last.fm/music/Jon+Foreman)             | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Kings of Leon](https://www.last.fm/music/Kings+of+Leon)         | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Mythos](https://www.last.fm/music/Mythos)                       | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Kansas](https://www.last.fm/music/Kansas)                       | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Marisa Monte](https://www.last.fm/music/Marisa+Monte)           | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana)   | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 1º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)               | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Milton Nascimento](https://www.last.fm/music/Milton+Nascimento) | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Muse](https://www.last.fm/music/Muse)                           | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Palavrantiga](https://www.last.fm/music/Palavrantiga)           | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Luiz Gonzaga](https://www.last.fm/music/Luiz+Gonzaga)           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab)  | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Jon Foreman](https://www.last.fm/music/Jon+Foreman)             | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Kings of Leon](https://www.last.fm/music/Kings+of+Leon)         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Mythos](https://www.last.fm/music/Mythos)                       | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Raul Seixas](https://www.last.fm/music/Raul+Seixas)            | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 23-10-2020 02:27:02 UTC
+🚀 **Última atualização:** 25-10-2020 02:27:02 UTC
