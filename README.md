@@ -41,12 +41,12 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 4º [Palavrantiga](https://www.last.fm/music/Palavrantiga)           | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Luiz Gonzaga](https://www.last.fm/music/Luiz+Gonzaga)           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab)  | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Jon Foreman](https://www.last.fm/music/Jon+Foreman)             | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Kings of Leon](https://www.last.fm/music/Kings+of+Leon)         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Mythos](https://www.last.fm/music/Mythos)                       | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Raul Seixas](https://www.last.fm/music/Raul+Seixas)            | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 7º [Mythos](https://www.last.fm/music/Mythos)                       | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Raul Seixas](https://www.last.fm/music/Raul+Seixas)             | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Marisa Monte](https://www.last.fm/music/Marisa+Monte)           | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Kings of Leon](https://www.last.fm/music/Kings+of+Leon)        | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 25-10-2020 02:27:02 UTC
+🚀 **Última atualização:** 26-10-2020 02:27:02 UTC
