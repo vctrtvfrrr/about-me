@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                       🎧 Artistas da semana                        |                      📚 Últimos livros lidos                      |
-|--------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)              | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Palavrantiga](https://www.last.fm/music/Palavrantiga)          | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Shaman](https://www.last.fm/music/Shaman)                      | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Muse](https://www.last.fm/music/Muse)                          | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Mythos](https://www.last.fm/music/Mythos)                      | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Raul Seixas](https://www.last.fm/music/Raul+Seixas)            | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Scorpions](https://www.last.fm/music/Scorpions)                | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [System of a Down](https://www.last.fm/music/System+of+a+Down)  | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Pitty](https://www.last.fm/music/Pitty)                       | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                            🎧 Artistas da semana                             |                      📚 Últimos livros lidos                      |
+|------------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                        | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Palavrantiga](https://www.last.fm/music/Palavrantiga)                    | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Shaman](https://www.last.fm/music/Shaman)                                | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab)           | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [System of a Down](https://www.last.fm/music/System+of+a+Down)            | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Raul Seixas](https://www.last.fm/music/Raul+Seixas)                      | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Scorpions](https://www.last.fm/music/Scorpions)                          | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Mythos](https://www.last.fm/music/Mythos)                                | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Pitty](https://www.last.fm/music/Pitty)                                  | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers) | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 28-10-2020 02:27:03 UTC
+🚀 **Última atualização:** 29-10-2020 02:27:03 UTC
