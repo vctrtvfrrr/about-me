@@ -36,17 +36,17 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |                       🎧 Artistas da semana                       |                      📚 Últimos livros lidos                      |
 |-------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Tuatha de Danann](https://www.last.fm/music/Tuatha+de+Danann) | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Tim Maia](https://www.last.fm/music/Tim+Maia)                 | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Uns e Outros](https://www.last.fm/music/Uns+e+Outros)         | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Titãs](https://www.last.fm/music/Tit%C3%A3s)                  | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Ultraje A Rigor](https://www.last.fm/music/Ultraje+A+Rigor)   | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Molejo](https://www.last.fm/music/Molejo)                     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 2º [Uns e Outros](https://www.last.fm/music/Uns+e+Outros)         | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Zé Ramalho](https://www.last.fm/music/Z%C3%A9+Ramalho)        | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Ultraje A Rigor](https://www.last.fm/music/Ultraje+A+Rigor)   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Molejo](https://www.last.fm/music/Molejo)                     | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Village People](https://www.last.fm/music/Village+People)     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 | 7º [Soweto](https://www.last.fm/music/Soweto)                     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Toto](https://www.last.fm/music/Toto)                         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 8º [Tim Maia](https://www.last.fm/music/Tim+Maia)                 | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 | 9º [Alceu Valença](https://www.last.fm/music/Alceu+Valen%C3%A7a)  | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 | 10º [Alexandre Pires](https://www.last.fm/music/Alexandre+Pires)  | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 05-11-2020 02:27:02 UTC
+🚀 **Última atualização:** 07-11-2020 02:27:01 UTC
