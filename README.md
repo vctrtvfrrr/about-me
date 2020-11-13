@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                          🎧 Artistas da semana                           |                      📚 Últimos livros lidos                      |
-|--------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Zé Ramalho](https://www.last.fm/music/Z%C3%A9+Ramalho)               | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Uns e Outros](https://www.last.fm/music/Uns+e+Outros)                | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Molejo](https://www.last.fm/music/Molejo)                            | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                    | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Só Pra Contrariar](https://www.last.fm/music/S%C3%B3+Pra+Contrariar) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Soweto](https://www.last.fm/music/Soweto)                            | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Ultraje A Rigor](https://www.last.fm/music/Ultraje+A+Rigor)          | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Eric Clapton](https://www.last.fm/music/Eric+Clapton)                | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Exaltasamba](https://www.last.fm/music/Exaltasamba)                  | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Raça Negra](https://www.last.fm/music/Ra%C3%A7a+Negra)              | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                                           🎧 Artistas da semana                                           |                      📚 Últimos livros lidos                      |
+|-----------------------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Zé Ramalho](https://www.last.fm/music/Z%C3%A9+Ramalho)                                                | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                                                     | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Só Pra Contrariar](https://www.last.fm/music/S%C3%B3+Pra+Contrariar)                                  | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Звери](https://www.last.fm/music/%D0%97%D0%B2%D0%B5%D1%80%D0%B8)                                      | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Океан Ельзи](https://www.last.fm/music/%D0%9E%D0%BA%D0%B5%D0%B0%D0%BD+%D0%95%D0%BB%D1%8C%D0%B7%D0%B8) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Eric Clapton](https://www.last.fm/music/Eric+Clapton)                                                 | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Zемфира](https://www.last.fm/music/Z%D0%B5%D0%BC%D1%84%D0%B8%D1%80%D0%B0)                             | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Ленинград](https://www.last.fm/music/%D0%9B%D0%B5%D0%BD%D0%B8%D0%BD%D0%B3%D1%80%D0%B0%D0%B4)          | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Exaltasamba](https://www.last.fm/music/Exaltasamba)                                                   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Molejo](https://www.last.fm/music/Molejo)                                                            | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 11-11-2020 02:27:01 UTC
+🚀 **Última atualização:** 13-11-2020 02:27:02 UTC
