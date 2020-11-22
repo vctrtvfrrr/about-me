@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                               🎧 Artistas da semana                               |                      📚 Últimos livros lidos                      |
-|-----------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Muse](https://www.last.fm/music/Muse)                                         | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                             | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana)                  | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Nat King Cole](https://www.last.fm/music/Nat+King+Cole)                       | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Sixpence None the Richer](https://www.last.fm/music/Sixpence+None+the+Richer) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Band of Horses](https://www.last.fm/music/Band+of+Horses)                     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [CPB](https://www.last.fm/music/CPB)                                           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Laura Pausini](https://www.last.fm/music/Laura+Pausini)                       | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Mariah Carey](https://www.last.fm/music/Mariah+Carey)                         | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [The Nat King Cole Trio](https://www.last.fm/music/The+Nat+King+Cole+Trio)    | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                      🎧 Artistas da semana                       |                      📚 Últimos livros lidos                      |
+|------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Muse](https://www.last.fm/music/Muse)                        | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)            | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana) | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Nat King Cole](https://www.last.fm/music/Nat+King+Cole)      | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Band of Horses](https://www.last.fm/music/Band+of+Horses)    | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [CPB](https://www.last.fm/music/CPB)                          | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Laura Pausini](https://www.last.fm/music/Laura+Pausini)      | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Ella Fitzgerald](https://www.last.fm/music/Ella+Fitzgerald)  | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Andrea Bocelli](https://www.last.fm/music/Andrea+Bocelli)    | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Mariah Carey](https://www.last.fm/music/Mariah+Carey)       | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 21-11-2020 02:27:03 UTC
+🚀 **Última atualização:** 22-11-2020 02:27:02 UTC
