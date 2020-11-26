@@ -35,18 +35,18 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                      🎧 Artistas da semana                       |                      📚 Últimos livros lidos                      |
 |------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana) | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Nat King Cole](https://www.last.fm/music/Nat+King+Cole)      | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Muse](https://www.last.fm/music/Muse)                        | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 1º [Nat King Cole](https://www.last.fm/music/Nat+King+Cole)      | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana) | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Coldplay](https://www.last.fm/music/Coldplay)                | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Dire Straits](https://www.last.fm/music/Dire+Straits)        | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [CPB](https://www.last.fm/music/CPB)                          | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [Ella Fitzgerald](https://www.last.fm/music/Ella+Fitzgerald)  | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Coldplay](https://www.last.fm/music/Coldplay)                | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Andrea Bocelli](https://www.last.fm/music/Andrea+Bocelli)    | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Laura Pausini](https://www.last.fm/music/Laura+Pausini)      | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Mariah Carey](https://www.last.fm/music/Mariah+Carey)       | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 7º [Andrea Bocelli](https://www.last.fm/music/Andrea+Bocelli)    | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Laura Pausini](https://www.last.fm/music/Laura+Pausini)      | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Mariah Carey](https://www.last.fm/music/Mariah+Carey)        | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Bing Crosby](https://www.last.fm/music/Bing+Crosby)         | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 25-11-2020 02:27:02 UTC
+🚀 **Última atualização:** 26-11-2020 02:27:02 UTC
