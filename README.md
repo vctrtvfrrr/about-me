@@ -36,17 +36,17 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |                      🎧 Artistas da semana                      |                      📚 Últimos livros lidos                      |
 |-----------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Coldplay](https://www.last.fm/music/Coldplay)               | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Nat King Cole](https://www.last.fm/music/Nat+King+Cole)     | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Dire Straits](https://www.last.fm/music/Dire+Straits)       | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 2º [Dire Straits](https://www.last.fm/music/Dire+Straits)       | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Ella Fitzgerald](https://www.last.fm/music/Ella+Fitzgerald) | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [CPB](https://www.last.fm/music/CPB)                         | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Ella Fitzgerald](https://www.last.fm/music/Ella+Fitzgerald) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Andrea Bocelli](https://www.last.fm/music/Andrea+Bocelli)   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Laura Pausini](https://www.last.fm/music/Laura+Pausini)     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Mariah Carey](https://www.last.fm/music/Mariah+Carey)       | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Bing Crosby](https://www.last.fm/music/Bing+Crosby)         | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Frank Sinatra](https://www.last.fm/music/Frank+Sinatra)    | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 5º [Andrea Bocelli](https://www.last.fm/music/Andrea+Bocelli)   | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Mariah Carey](https://www.last.fm/music/Mariah+Carey)       | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Bing Crosby](https://www.last.fm/music/Bing+Crosby)         | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Frank Sinatra](https://www.last.fm/music/Frank+Sinatra)     | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Jessica Simpson](https://www.last.fm/music/Jessica+Simpson) | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Perry Como](https://www.last.fm/music/Perry+Como)          | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 27-11-2020 02:27:02 UTC
+🚀 **Última atualização:** 28-11-2020 02:27:02 UTC
