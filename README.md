@@ -36,17 +36,17 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |                               🎧 Artistas da semana                               |                      📚 Últimos livros lidos                      |
 |-----------------------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Green Day](https://www.last.fm/music/Green+Day)                               | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Coldplay](https://www.last.fm/music/Coldplay)                                 | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Sixpence None the Richer](https://www.last.fm/music/Sixpence+None+the+Richer) | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Stênio Marcius](https://www.last.fm/music/St%C3%AAnio+Marcius)                | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Jason Mraz](https://www.last.fm/music/Jason+Mraz)                             | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Dire Straits](https://www.last.fm/music/Dire+Straits)                         | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                             | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-|                                                                                   | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 2º [Sixpence None the Richer](https://www.last.fm/music/Sixpence+None+the+Richer) | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Jason Mraz](https://www.last.fm/music/Jason+Mraz)                             | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Band of Horses](https://www.last.fm/music/Band+of+Horses)                     | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Stênio Marcius](https://www.last.fm/music/St%C3%AAnio+Marcius)                | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [The Cranberries](https://www.last.fm/music/The+Cranberries)                   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Milton Nascimento](https://www.last.fm/music/Milton+Nascimento)               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Coldplay](https://www.last.fm/music/Coldplay)                                 | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 |                                                                                   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 |                                                                                   | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 01-12-2020 02:27:02 UTC
+🚀 **Última atualização:** 05-12-2020 02:27:02 UTC
