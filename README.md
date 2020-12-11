@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                               🎧 Artistas da semana                               |                      📚 Últimos livros lidos                      |
-|-----------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Sixpence None the Richer](https://www.last.fm/music/Sixpence+None+the+Richer) | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Green Day](https://www.last.fm/music/Green+Day)                               | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Jason Mraz](https://www.last.fm/music/Jason+Mraz)                             | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Band of Horses](https://www.last.fm/music/Band+of+Horses)                     | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [The Cranberries](https://www.last.fm/music/The+Cranberries)                   | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Milton Nascimento](https://www.last.fm/music/Milton+Nascimento)               | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Dire Straits](https://www.last.fm/music/Dire+Straits)                         | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Toto](https://www.last.fm/music/Toto)                                         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-|                                                                                   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-|                                                                                   | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                        🎧 Artistas da semana                         |                      📚 Últimos livros lidos                      |
+|----------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [O Teatro Mágico](https://www.last.fm/music/O+Teatro+M%C3%A1gico) | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Milton Nascimento](https://www.last.fm/music/Milton+Nascimento)  | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Josh Garrels](https://www.last.fm/music/Josh+Garrels)            | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Band of Horses](https://www.last.fm/music/Band+of+Horses)        | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Edvard Grieg](https://www.last.fm/music/Edvard+Grieg)            | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Dire Straits](https://www.last.fm/music/Dire+Straits)            | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Sibelius](https://www.last.fm/music/Sibelius)                    | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Toto](https://www.last.fm/music/Toto)                            | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+|                                                                      | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+|                                                                      | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 07-12-2020 02:27:03 UTC
+🚀 **Última atualização:** 11-12-2020 02:27:01 UTC
