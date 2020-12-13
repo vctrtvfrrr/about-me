@@ -35,18 +35,18 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                        🎧 Artistas da semana                         |                      📚 Últimos livros lidos                      |
 |----------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [O Teatro Mágico](https://www.last.fm/music/O+Teatro+M%C3%A1gico) | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Milton Nascimento](https://www.last.fm/music/Milton+Nascimento)  | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Josh Garrels](https://www.last.fm/music/Josh+Garrels)            | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Band of Horses](https://www.last.fm/music/Band+of+Horses)        | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 1º [Josh Garrels](https://www.last.fm/music/Josh+Garrels)            | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [O Teatro Mágico](https://www.last.fm/music/O+Teatro+M%C3%A1gico) | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Milton Nascimento](https://www.last.fm/music/Milton+Nascimento)  | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Catedral](https://www.last.fm/music/Catedral)                    | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Edvard Grieg](https://www.last.fm/music/Edvard+Grieg)            | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Dire Straits](https://www.last.fm/music/Dire+Straits)            | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Sibelius](https://www.last.fm/music/Sibelius)                    | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Toto](https://www.last.fm/music/Toto)                            | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 6º [Sibelius](https://www.last.fm/music/Sibelius)                    | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+|                                                                      | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+|                                                                      | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 |                                                                      | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 |                                                                      | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 11-12-2020 02:27:01 UTC
+🚀 **Última atualização:** 13-12-2020 02:27:07 UTC
