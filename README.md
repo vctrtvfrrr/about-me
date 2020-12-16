@@ -35,18 +35,18 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                            🎧 Artistas da semana                            |                      📚 Últimos livros lidos                      |
 |-----------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Josh Garrels](https://www.last.fm/music/Josh+Garrels)                   | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 1º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers) | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [Catedral](https://www.last.fm/music/Catedral)                           | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [O Teatro Mágico](https://www.last.fm/music/O+Teatro+M%C3%A1gico)        | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Edvard Grieg](https://www.last.fm/music/Edvard+Grieg)                   | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Cypis](https://www.last.fm/music/Cypis)                                 | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Lipps, Inc.](https://www.last.fm/music/Lipps,+Inc.)                     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Sibelius](https://www.last.fm/music/Sibelius)                           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Wizet](https://www.last.fm/music/Wizet)                                 | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 3º [Josh Garrels](https://www.last.fm/music/Josh+Garrels)                   | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Edvard Grieg](https://www.last.fm/music/Edvard+Grieg)                   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Cypis](https://www.last.fm/music/Cypis)                                 | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Lipps, Inc.](https://www.last.fm/music/Lipps,+Inc.)                     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Sibelius](https://www.last.fm/music/Sibelius)                           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Wizet](https://www.last.fm/music/Wizet)                                 | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+|                                                                             | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 |                                                                             | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 15-12-2020 02:27:02 UTC
+🚀 **Última atualização:** 16-12-2020 02:27:02 UTC
