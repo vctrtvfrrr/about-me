@@ -37,7 +37,7 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |-----------------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers) | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [Catedral](https://www.last.fm/music/Catedral)                           | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Josh Garrels](https://www.last.fm/music/Josh+Garrels)                   | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 3º [Paramore](https://www.last.fm/music/Paramore)                           | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Cypis](https://www.last.fm/music/Cypis)                                 | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Lipps, Inc.](https://www.last.fm/music/Lipps,+Inc.)                     | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [Wizet](https://www.last.fm/music/Wizet)                                 | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
@@ -49,4 +49,4 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ---
 
-🚀 **Última atualização:** 17-12-2020 02:27:03 UTC
+🚀 **Última atualização:** 19-12-2020 02:27:02 UTC
