@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                        🎧 Artistas da semana                        |                      📚 Últimos livros lidos                      |
-|---------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Roupa Nova](https://www.last.fm/music/Roupa+Nova)               | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Nat King Cole](https://www.last.fm/music/Nat+King+Cole)         | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Raul Seixas](https://www.last.fm/music/Raul+Seixas)             | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Paramore](https://www.last.fm/music/Paramore)                   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Milton Nascimento](https://www.last.fm/music/Milton+Nascimento) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Laura Pausini](https://www.last.fm/music/Laura+Pausini)         | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [CPB](https://www.last.fm/music/CPB)                             | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Bee Gees](https://www.last.fm/music/Bee+Gees)                   | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Frank Sinatra](https://www.last.fm/music/Frank+Sinatra)         | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Jessica Simpson](https://www.last.fm/music/Jessica+Simpson)    | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                               🎧 Artistas da semana                               |                      📚 Últimos livros lidos                      |
+|-----------------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Paramore](https://www.last.fm/music/Paramore)                                 | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Roupa Nova](https://www.last.fm/music/Roupa+Nova)                             | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Nat King Cole](https://www.last.fm/music/Nat+King+Cole)                       | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Raul Seixas](https://www.last.fm/music/Raul+Seixas)                           | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Sixpence None the Richer](https://www.last.fm/music/Sixpence+None+the+Richer) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Milton Nascimento](https://www.last.fm/music/Milton+Nascimento)               | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Laura Pausini](https://www.last.fm/music/Laura+Pausini)                       | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [CPB](https://www.last.fm/music/CPB)                                           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Bee Gees](https://www.last.fm/music/Bee+Gees)                                 | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Frank Sinatra](https://www.last.fm/music/Frank+Sinatra)                      | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 26-12-2020 02:27:02 UTC
+🚀 **Última atualização:** 27-12-2020 02:27:02 UTC
