@@ -35,10 +35,10 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                               🎧 Artistas da semana                               |                      📚 Últimos livros lidos                      |
 |-----------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Raul Seixas](https://www.last.fm/music/Raul+Seixas)                           | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Nat King Cole](https://www.last.fm/music/Nat+King+Cole)                       | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Paramore](https://www.last.fm/music/Paramore)                                 | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Sixpence None the Richer](https://www.last.fm/music/Sixpence+None+the+Richer) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 1º [Nat King Cole](https://www.last.fm/music/Nat+King+Cole)                       | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Paramore](https://www.last.fm/music/Paramore)                                 | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Sixpence None the Richer](https://www.last.fm/music/Sixpence+None+the+Richer) | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Raul Seixas](https://www.last.fm/music/Raul+Seixas)                           | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Milton Nascimento](https://www.last.fm/music/Milton+Nascimento)               | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [Laura Pausini](https://www.last.fm/music/Laura+Pausini)                       | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 | 7º [CPB](https://www.last.fm/music/CPB)                                           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
@@ -49,4 +49,4 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ---
 
-🚀 **Última atualização:** 29-12-2020 02:27:03 UTC
+🚀 **Última atualização:** 31-12-2020 02:27:02 UTC
