@@ -35,18 +35,18 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                         🎧 Artistas da semana                         |                      📚 Últimos livros lidos                      |
 |-----------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Audrey Assad](https://www.last.fm/music/Audrey+Assad)             | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Avenged Sevenfold](https://www.last.fm/music/Avenged+Sevenfold)   | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Mythos](https://www.last.fm/music/Mythos)                         | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Palavrantiga](https://www.last.fm/music/Palavrantiga)             | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab)    | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Falcão](https://www.last.fm/music/Falc%C3%A3o)                    | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Daft Punk](https://www.last.fm/music/Daft+Punk)                   | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [30 Seconds to Mars](https://www.last.fm/music/30+Seconds+to+Mars) | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [ZZ Top](https://www.last.fm/music/ZZ+Top)                         | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 1º [Avenged Sevenfold](https://www.last.fm/music/Avenged+Sevenfold)   | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Palavrantiga](https://www.last.fm/music/Palavrantiga)             | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab)    | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Falcão](https://www.last.fm/music/Falc%C3%A3o)                    | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [30 Seconds to Mars](https://www.last.fm/music/30+Seconds+to+Mars) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Ney Matogrosso](https://www.last.fm/music/Ney+Matogrosso)         | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Os Mutantes](https://www.last.fm/music/Os+Mutantes)               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [ZZ Top](https://www.last.fm/music/ZZ+Top)                         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Nando Reis](https://www.last.fm/music/Nando+Reis)                 | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 | 10º [MC POZE](https://www.last.fm/music/MC+POZE)                      | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 17-01-2021 02:27:02 UTC
+🚀 **Última atualização:** 19-01-2021 02:27:03 UTC
