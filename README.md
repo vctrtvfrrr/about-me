@@ -35,18 +35,18 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                        🎧 Artistas da semana                        |                      📚 Últimos livros lidos                      |
 |---------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Avenged Sevenfold](https://www.last.fm/music/Avenged+Sevenfold) | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Falcão](https://www.last.fm/music/Falc%C3%A3o)                  | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Ney Matogrosso](https://www.last.fm/music/Ney+Matogrosso)       | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Os Mutantes](https://www.last.fm/music/Os+Mutantes)             | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [ZZ Top](https://www.last.fm/music/ZZ+Top)                       | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Nando Reis](https://www.last.fm/music/Nando+Reis)               | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [MC POZE](https://www.last.fm/music/MC+POZE)                     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Robert Schumann](https://www.last.fm/music/Robert+Schumann)     | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Richard Strauss](https://www.last.fm/music/Richard+Strauss)     | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 1º [Ney Matogrosso](https://www.last.fm/music/Ney+Matogrosso)       | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Os Mutantes](https://www.last.fm/music/Os+Mutantes)             | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [ZZ Top](https://www.last.fm/music/ZZ+Top)                       | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Avenged Sevenfold](https://www.last.fm/music/Avenged+Sevenfold) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Nando Reis](https://www.last.fm/music/Nando+Reis)               | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [MC POZE](https://www.last.fm/music/MC+POZE)                     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Robert Schumann](https://www.last.fm/music/Robert+Schumann)     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Richard Strauss](https://www.last.fm/music/Richard+Strauss)     | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab)  | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 | 10º [F.R. David](https://www.last.fm/music/F.R.+David)              | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 21-01-2021 02:27:02 UTC
+🚀 **Última atualização:** 22-01-2021 02:27:02 UTC
