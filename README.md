@@ -40,13 +40,13 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 3º [Symphony X](https://www.last.fm/music/Symphony+X)                       | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Iron Maiden](https://www.last.fm/music/Iron+Maiden)                     | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Johann Sebastian Bach](https://www.last.fm/music/Johann+Sebastian+Bach) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Zeca Pagodinho](https://www.last.fm/music/Zeca+Pagodinho)               | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [The Clash](https://www.last.fm/music/The+Clash)                         | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Alvarenga E Ranchinho](https://www.last.fm/music/Alvarenga+E+Ranchinho) | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Cartola](https://www.last.fm/music/Cartola)                             | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Fleetwood Mac](https://www.last.fm/music/Fleetwood+Mac)                | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 6º [The Clash](https://www.last.fm/music/The+Clash)                         | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Fleetwood Mac](https://www.last.fm/music/Fleetwood+Mac)                 | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [The Mamas & the Papas](https://www.last.fm/music/The+Mamas+&+the+Papas) | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+|                                                                             | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+|                                                                             | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 13-02-2021 02:27:02 UTC
+🚀 **Última atualização:** 15-02-2021 02:27:02 UTC
