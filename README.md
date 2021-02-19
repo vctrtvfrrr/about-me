@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                            🎧 Artistas da semana                            |                      📚 Últimos livros lidos                      |
-|-----------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Symphony X](https://www.last.fm/music/Symphony+X)                       | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [The Strokes](https://www.last.fm/music/The+Strokes)                     | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Johann Sebastian Bach](https://www.last.fm/music/Johann+Sebastian+Bach) | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [The Clash](https://www.last.fm/music/The+Clash)                         | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Andrea Bocelli](https://www.last.fm/music/Andrea+Bocelli)               | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [The Mamas & the Papas](https://www.last.fm/music/The+Mamas+&+the+Papas) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-|                                                                             | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-|                                                                             | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-|                                                                             | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-|                                                                             | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                     🎧 Artistas da semana                     |                      📚 Últimos livros lidos                      |
+|---------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Andrea Bocelli](https://www.last.fm/music/Andrea+Bocelli) | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+|                                                               | A Arte da Guerra	–	_Sun Tzu_                                        |
+|                                                               | O Príncipe	–	_Nicolau Maquiavel_                                    |
+|                                                               | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+|                                                               | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+|                                                               | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+|                                                               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+|                                                               | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+|                                                               | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+|                                                               | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 17-02-2021 02:27:02 UTC
+🚀 **Última atualização:** 19-02-2021 02:27:02 UTC
