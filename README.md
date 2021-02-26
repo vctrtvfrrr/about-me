@@ -36,17 +36,17 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |                               🎧 Artistas da semana                                |                      📚 Últimos livros lidos                      |
 |------------------------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Leigh Nash](https://www.last.fm/music/Leigh+Nash)                              | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Metallica](https://www.last.fm/music/Metallica)                                | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [DragonForce](https://www.last.fm/music/DragonForce)                            | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Papa Roach](https://www.last.fm/music/Papa+Roach)                              | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Stratovarius](https://www.last.fm/music/Stratovarius)                          | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Georg Friedrich Händel](https://www.last.fm/music/Georg+Friedrich+H%C3%A4ndel) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Júpiter Maçã](https://www.last.fm/music/J%C3%BApiter+Ma%C3%A7%C3%A3)           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Johannes Brahms](https://www.last.fm/music/Johannes+Brahms)                    | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Joni Mitchell](https://www.last.fm/music/Joni+Mitchell)                        | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Elvis Presley](https://www.last.fm/music/Elvis+Presley)                       | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 2º [Rage Against the Machine](https://www.last.fm/music/Rage+Against+the+Machine)  | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Slipknot](https://www.last.fm/music/Slipknot)                                  | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Metallica](https://www.last.fm/music/Metallica)                                | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [DragonForce](https://www.last.fm/music/DragonForce)                            | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Papa Roach](https://www.last.fm/music/Papa+Roach)                              | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Stratovarius](https://www.last.fm/music/Stratovarius)                          | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Bon Jovi](https://www.last.fm/music/Bon+Jovi)                                  | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Georg Friedrich Händel](https://www.last.fm/music/Georg+Friedrich+H%C3%A4ndel) | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Júpiter Maçã](https://www.last.fm/music/J%C3%BApiter+Ma%C3%A7%C3%A3)          | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 25-02-2021 02:27:02 UTC
+🚀 **Última atualização:** 26-02-2021 02:27:02 UTC
