@@ -39,14 +39,14 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 2º [Slipknot](https://www.last.fm/music/Slipknot)                                 | A Arte da Guerra	–	_Sun Tzu_                                        |
 | 3º [Leigh Nash](https://www.last.fm/music/Leigh+Nash)                             | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [The Beach Boys](https://www.last.fm/music/The+Beach+Boys)                     | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Kasabian](https://www.last.fm/music/Kasabian)                                 | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Metallica](https://www.last.fm/music/Metallica)                               | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [DragonForce](https://www.last.fm/music/DragonForce)                           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Papa Roach](https://www.last.fm/music/Papa+Roach)                             | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Bon Jovi](https://www.last.fm/music/Bon+Jovi)                                 | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana)                 | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 5º [Metallica](https://www.last.fm/music/Metallica)                               | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Kasabian](https://www.last.fm/music/Kasabian)                                 | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [The Clash](https://www.last.fm/music/The+Clash)                               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Alter Bridge](https://www.last.fm/music/Alter+Bridge)                         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Within Temptation](https://www.last.fm/music/Within+Temptation)               | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [DragonForce](https://www.last.fm/music/DragonForce)                          | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 28-02-2021 02:27:02 UTC
+🚀 **Última atualização:** 01-03-2021 02:27:03 UTC
