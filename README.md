@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                               🎧 Artistas da semana                               |                      📚 Últimos livros lidos                      |
-|-----------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Rage Against the Machine](https://www.last.fm/music/Rage+Against+the+Machine) | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Slipknot](https://www.last.fm/music/Slipknot)                                 | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Leigh Nash](https://www.last.fm/music/Leigh+Nash)                             | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [The Beach Boys](https://www.last.fm/music/The+Beach+Boys)                     | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Metallica](https://www.last.fm/music/Metallica)                               | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Kasabian](https://www.last.fm/music/Kasabian)                                 | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [The Clash](https://www.last.fm/music/The+Clash)                               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Alter Bridge](https://www.last.fm/music/Alter+Bridge)                         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Within Temptation](https://www.last.fm/music/Within+Temptation)               | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [DragonForce](https://www.last.fm/music/DragonForce)                          | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                        🎧 Artistas da semana                        |                      📚 Últimos livros lidos                      |
+|---------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Pixies](https://www.last.fm/music/Pixies)                       | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [The Clash](https://www.last.fm/music/The+Clash)                 | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Kasabian](https://www.last.fm/music/Kasabian)                   | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Alter Bridge](https://www.last.fm/music/Alter+Bridge)           | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Within Temptation](https://www.last.fm/music/Within+Temptation) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Frank Sinatra](https://www.last.fm/music/Frank+Sinatra)         | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Bad Religion](https://www.last.fm/music/Bad+Religion)           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Jethro Tull](https://www.last.fm/music/Jethro+Tull)             | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana)    | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [SlackCircus](https://www.last.fm/music/SlackCircus)            | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 01-03-2021 02:27:03 UTC
+🚀 **Última atualização:** 05-03-2021 02:27:02 UTC
