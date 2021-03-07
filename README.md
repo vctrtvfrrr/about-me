@@ -37,16 +37,16 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |---------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Pixies](https://www.last.fm/music/Pixies)                       | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [The Clash](https://www.last.fm/music/The+Clash)                 | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Kasabian](https://www.last.fm/music/Kasabian)                   | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Alter Bridge](https://www.last.fm/music/Alter+Bridge)           | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Within Temptation](https://www.last.fm/music/Within+Temptation) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Frank Sinatra](https://www.last.fm/music/Frank+Sinatra)         | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Bad Religion](https://www.last.fm/music/Bad+Religion)           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Jethro Tull](https://www.last.fm/music/Jethro+Tull)             | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana)    | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [SlackCircus](https://www.last.fm/music/SlackCircus)            | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 3º [Alter Bridge](https://www.last.fm/music/Alter+Bridge)           | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Within Temptation](https://www.last.fm/music/Within+Temptation) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Bad Religion](https://www.last.fm/music/Bad+Religion)           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Jethro Tull](https://www.last.fm/music/Jethro+Tull)             | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Amy Winehouse](https://www.last.fm/music/Amy+Winehouse)         | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Blur](https://www.last.fm/music/Blur)                           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [The Script](https://www.last.fm/music/The+Script)               | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Backstreet Boys](https://www.last.fm/music/Backstreet+Boys)    | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 05-03-2021 02:27:02 UTC
+🚀 **Última atualização:** 07-03-2021 02:27:02 UTC
