@@ -35,18 +35,18 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                                   🎧 Artistas da semana                                   |                      📚 Últimos livros lidos                      |
 |-------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Toto](https://www.last.fm/music/Toto)                                                 | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 1º [Pitfall: The Mayan Adventure](https://www.last.fm/music/Pitfall:+The+Mayan+Adventure) | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [U2](https://www.last.fm/music/U2)                                                     | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Akon](https://www.last.fm/music/Akon)                                                 | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Pitfall: The Mayan Adventure](https://www.last.fm/music/Pitfall:+The+Mayan+Adventure) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                                     | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Avril Lavigne](https://www.last.fm/music/Avril+Lavigne)                               | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Dire Straits](https://www.last.fm/music/Dire+Straits)                                 | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Colbie Caillat](https://www.last.fm/music/Colbie+Caillat)                             | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Coldplay](https://www.last.fm/music/Coldplay)                                         | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [David Guetta](https://www.last.fm/music/David+Guetta)                                | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 3º [Céline Dion](https://www.last.fm/music/C%C3%A9line+Dion)                              | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Kansas](https://www.last.fm/music/Kansas)                                             | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Foster the People](https://www.last.fm/music/Foster+the+People)                       | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Toto](https://www.last.fm/music/Toto)                                                 | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Akon](https://www.last.fm/music/Akon)                                                 | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                                     | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Avril Lavigne](https://www.last.fm/music/Avril+Lavigne)                               | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Dire Straits](https://www.last.fm/music/Dire+Straits)                                | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 11-03-2021 02:27:03 UTC
+🚀 **Última atualização:** 13-03-2021 02:27:02 UTC
