@@ -37,8 +37,8 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |---------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Pato Fu](https://www.last.fm/music/Pato+Fu)                     | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)               | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana)    | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Blind Guardian](https://www.last.fm/music/Blind+Guardian)       | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 3º [Blind Guardian](https://www.last.fm/music/Blind+Guardian)       | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana)    | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Keane](https://www.last.fm/music/Keane)                         | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [Loreena McKennitt](https://www.last.fm/music/Loreena+McKennitt) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 | 7º [Passengers](https://www.last.fm/music/Passengers)               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
@@ -49,4 +49,4 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ---
 
-🚀 **Última atualização:** 21-03-2021 02:27:02 UTC
+🚀 **Última atualização:** 22-03-2021 02:27:03 UTC
