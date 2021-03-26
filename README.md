@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                            🎧 Artistas da semana                            |                      📚 Últimos livros lidos                      |
-|-----------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana)            | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                       | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Green Day](https://www.last.fm/music/Green+Day)                         | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Keane](https://www.last.fm/music/Keane)                                 | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Audrey Assad](https://www.last.fm/music/Audrey+Assad)                   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Led Zeppelin](https://www.last.fm/music/Led+Zeppelin)                   | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Lesiëm](https://www.last.fm/music/Lesi%C3%ABm)                          | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Skank](https://www.last.fm/music/Skank)                                 | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Theocracy](https://www.last.fm/music/Theocracy)                        | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                        🎧 Artistas da semana                        |                      📚 Últimos livros lidos                      |
+|---------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Green Day](https://www.last.fm/music/Green+Day)                 | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Catedral](https://www.last.fm/music/Catedral)                   | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Led Zeppelin](https://www.last.fm/music/Led+Zeppelin)           | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana)    | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Skank](https://www.last.fm/music/Skank)                         | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Audrey Assad](https://www.last.fm/music/Audrey+Assad)           | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Lesiëm](https://www.last.fm/music/Lesi%C3%ABm)                  | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Milton Nascimento](https://www.last.fm/music/Milton+Nascimento) | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)               | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Raimundos](https://www.last.fm/music/Raimundos)                | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 25-03-2021 02:27:02 UTC
+🚀 **Última atualização:** 26-03-2021 02:27:02 UTC
