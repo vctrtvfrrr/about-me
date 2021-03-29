@@ -38,15 +38,15 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 1º [Green Day](https://www.last.fm/music/Green+Day)                         | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers) | A Arte da Guerra	–	_Sun Tzu_                                        |
 | 3º [Skank](https://www.last.fm/music/Skank)                                 | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Led Zeppelin](https://www.last.fm/music/Led+Zeppelin)                   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Theocracy](https://www.last.fm/music/Theocracy)                         | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Catedral](https://www.last.fm/music/Catedral)                           | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Audrey Assad](https://www.last.fm/music/Audrey+Assad)                   | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Milton Nascimento](https://www.last.fm/music/Milton+Nascimento)         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Muse](https://www.last.fm/music/Muse)                                   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Anberlin](https://www.last.fm/music/Anberlin)                          | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 4º [Gorillaz](https://www.last.fm/music/Gorillaz)                           | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Audrey Assad](https://www.last.fm/music/Audrey+Assad)                   | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Led Zeppelin](https://www.last.fm/music/Led+Zeppelin)                   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Theocracy](https://www.last.fm/music/Theocracy)                         | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Catedral](https://www.last.fm/music/Catedral)                           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Lesiëm](https://www.last.fm/music/Lesi%C3%ABm)                          | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Milton Nascimento](https://www.last.fm/music/Milton+Nascimento)        | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 28-03-2021 02:27:02 UTC
+🚀 **Última atualização:** 29-03-2021 02:27:01 UTC
