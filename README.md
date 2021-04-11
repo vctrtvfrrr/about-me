@@ -36,17 +36,17 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |                            🎧 Artistas da semana                            |                      📚 Últimos livros lidos                      |
 |-----------------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Muse](https://www.last.fm/music/Muse)                                   | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Led Zeppelin](https://www.last.fm/music/Led+Zeppelin)                   | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Queen](https://www.last.fm/music/Queen)                                 | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [The Beatles](https://www.last.fm/music/The+Beatles)                     | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [The Doors](https://www.last.fm/music/The+Doors)                         | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [The Rolling Stones](https://www.last.fm/music/The+Rolling+Stones)       | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Foo Fighters](https://www.last.fm/music/Foo+Fighters)                   | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                       | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Coldplay](https://www.last.fm/music/Coldplay)                          | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 2º [Nat King Cole](https://www.last.fm/music/Nat+King+Cole)                 | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Laura Pausini](https://www.last.fm/music/Laura+Pausini)                 | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Coldplay](https://www.last.fm/music/Coldplay)                           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [CPB](https://www.last.fm/music/CPB)                                     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Radiohead](https://www.last.fm/music/Radiohead)                         | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Ella Fitzgerald](https://www.last.fm/music/Ella+Fitzgerald)             | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Foo Fighters](https://www.last.fm/music/Foo+Fighters)                   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Linkin Park](https://www.last.fm/music/Linkin+Park)                    | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 07-04-2021 02:27:02 UTC
+🚀 **Última atualização:** 11-04-2021 02:27:01 UTC
