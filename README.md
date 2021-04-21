@@ -38,15 +38,15 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 1º [Slipknot](https://www.last.fm/music/Slipknot)                   | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [Pato Fu](https://www.last.fm/music/Pato+Fu)                     | A Arte da Guerra	–	_Sun Tzu_                                        |
 | 3º [Avenged Sevenfold](https://www.last.fm/music/Avenged+Sevenfold) | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Avril Lavigne](https://www.last.fm/music/Avril+Lavigne)         | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Band of Horses](https://www.last.fm/music/Band+of+Horses)       | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Coldplay](https://www.last.fm/music/Coldplay)                   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Gorillaz](https://www.last.fm/music/Gorillaz)                   | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Metallica](https://www.last.fm/music/Metallica)                 | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Foster the People](https://www.last.fm/music/Foster+the+People) | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Ace of Base](https://www.last.fm/music/Ace+of+Base)            | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 4º [Metallica](https://www.last.fm/music/Metallica)                 | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Pearl Jam](https://www.last.fm/music/Pearl+Jam)                 | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Disturbed](https://www.last.fm/music/Disturbed)                 | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Franz Schubert](https://www.last.fm/music/Franz+Schubert)       | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Korn](https://www.last.fm/music/Korn)                           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Pantera](https://www.last.fm/music/Pantera)                     | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)              | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 19-04-2021 02:27:01 UTC
+🚀 **Última atualização:** 21-04-2021 02:27:02 UTC
