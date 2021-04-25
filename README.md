@@ -35,18 +35,18 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                            🎧 Artistas da semana                            |                      📚 Últimos livros lidos                      |
 |-----------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Pato Fu](https://www.last.fm/music/Pato+Fu)                             | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                       | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Pearl Jam](https://www.last.fm/music/Pearl+Jam)                         | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [30 Seconds to Mars](https://www.last.fm/music/30+Seconds+to+Mars)       | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 1º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                       | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Pearl Jam](https://www.last.fm/music/Pearl+Jam)                         | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [30 Seconds to Mars](https://www.last.fm/music/30+Seconds+to+Mars)       | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Linked Horizon](https://www.last.fm/music/Linked+Horizon)               | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Franz Schubert](https://www.last.fm/music/Franz+Schubert)               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Kansas](https://www.last.fm/music/Kansas)                               | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Led Zeppelin](https://www.last.fm/music/Led+Zeppelin)                   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Milton Nascimento](https://www.last.fm/music/Milton+Nascimento)        | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 6º [Kansas](https://www.last.fm/music/Kansas)                               | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Led Zeppelin](https://www.last.fm/music/Led+Zeppelin)                   | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Milton Nascimento](https://www.last.fm/music/Milton+Nascimento)         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Muse](https://www.last.fm/music/Muse)                                   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Scorpions](https://www.last.fm/music/Scorpions)                        | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 23-04-2021 02:27:02 UTC
+🚀 **Última atualização:** 25-04-2021 02:27:02 UTC
