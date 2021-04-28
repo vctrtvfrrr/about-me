@@ -35,18 +35,18 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                              🎧 Artistas da semana                              |                      📚 Últimos livros lidos                      |
 |---------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [30 Seconds to Mars](https://www.last.fm/music/30+Seconds+to+Mars)           | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                           | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Linked Horizon](https://www.last.fm/music/Linked+Horizon)                   | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Skank](https://www.last.fm/music/Skank)                                     | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Band of Horses](https://www.last.fm/music/Band+of+Horses)                   | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Milton Nascimento](https://www.last.fm/music/Milton+Nascimento)             | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 1º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                           | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [30 Seconds to Mars](https://www.last.fm/music/30+Seconds+to+Mars)           | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers)     | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Band of Horses](https://www.last.fm/music/Band+of+Horses)                   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Josh Garrels](https://www.last.fm/music/Josh+Garrels)                       | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Linked Horizon](https://www.last.fm/music/Linked+Horizon)                   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 | 7º [Os Paralamas Do Sucesso](https://www.last.fm/music/Os+Paralamas+Do+Sucesso) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Pearl Jam](https://www.last.fm/music/Pearl+Jam)                             | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers)     | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Scorpions](https://www.last.fm/music/Scorpions)                            | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 8º [Paramore](https://www.last.fm/music/Paramore)                               | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Skank](https://www.last.fm/music/Skank)                                     | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Belchior](https://www.last.fm/music/Belchior)                              | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 27-04-2021 02:27:02 UTC
+🚀 **Última atualização:** 28-04-2021 02:27:02 UTC
