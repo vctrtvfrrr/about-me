@@ -35,18 +35,18 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                            🎧 Artistas da semana                            |                      📚 Últimos livros lidos                      |
 |-----------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                       | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers) | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [30 Seconds to Mars](https://www.last.fm/music/30+Seconds+to+Mars)       | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Band of Horses](https://www.last.fm/music/Band+of+Horses)               | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Josh Garrels](https://www.last.fm/music/Josh+Garrels)                   | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Milton Nascimento](https://www.last.fm/music/Milton+Nascimento)         | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Muse](https://www.last.fm/music/Muse)                                   | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 1º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers) | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Green Day](https://www.last.fm/music/Green+Day)                         | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                       | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana)            | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Muse](https://www.last.fm/music/Muse)                                   | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Skank](https://www.last.fm/music/Skank)                                 | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Josh Garrels](https://www.last.fm/music/Josh+Garrels)                   | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 | 8º [Paramore](https://www.last.fm/music/Paramore)                           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Skank](https://www.last.fm/music/Skank)                                 | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Tuatha de Danann](https://www.last.fm/music/Tuatha+de+Danann)          | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 9º [U2](https://www.last.fm/music/U2)                                       | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Blind Guardian](https://www.last.fm/music/Blind+Guardian)              | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 29-04-2021 02:27:01 UTC
+🚀 **Última atualização:** 01-05-2021 02:27:02 UTC
