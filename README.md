@@ -35,18 +35,18 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                            🎧 Artistas da semana                            |                      📚 Últimos livros lidos                      |
 |-----------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers) | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Green Day](https://www.last.fm/music/Green+Day)                         | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                       | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana)            | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Muse](https://www.last.fm/music/Muse)                                   | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Skank](https://www.last.fm/music/Skank)                                 | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Josh Garrels](https://www.last.fm/music/Josh+Garrels)                   | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Paramore](https://www.last.fm/music/Paramore)                           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [U2](https://www.last.fm/music/U2)                                       | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Blind Guardian](https://www.last.fm/music/Blind+Guardian)              | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 1º [John Mayer](https://www.last.fm/music/John+Mayer)                       | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [James Morrison](https://www.last.fm/music/James+Morrison)               | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Jack Johnson](https://www.last.fm/music/Jack+Johnson)                   | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Jason Mraz](https://www.last.fm/music/Jason+Mraz)                       | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Green Day](https://www.last.fm/music/Green+Day)                         | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [James Blunt](https://www.last.fm/music/James+Blunt)                     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana)            | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Lifehouse](https://www.last.fm/music/Lifehouse)                         | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Linked Horizon](https://www.last.fm/music/Linked+Horizon)              | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 01-05-2021 02:27:02 UTC
+🚀 **Última atualização:** 05-05-2021 02:27:02 UTC
