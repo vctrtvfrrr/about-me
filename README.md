@@ -35,18 +35,18 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                               🎧 Artistas da semana                               |                      📚 Últimos livros lidos                      |
 |-----------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [John Mayer](https://www.last.fm/music/John+Mayer)                             | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [James Morrison](https://www.last.fm/music/James+Morrison)                     | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Linked Horizon](https://www.last.fm/music/Linked+Horizon)                     | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Jack Johnson](https://www.last.fm/music/Jack+Johnson)                         | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Jason Mraz](https://www.last.fm/music/Jason+Mraz)                             | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [ASIAN KUNG-FU GENERATION](https://www.last.fm/music/ASIAN+KUNG-FU+GENERATION) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [James Blunt](https://www.last.fm/music/James+Blunt)                           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [The Script](https://www.last.fm/music/The+Script)                             | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Avril Lavigne](https://www.last.fm/music/Avril+Lavigne)                       | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 1º [Yann Tiersen](https://www.last.fm/music/Yann+Tiersen)                         | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Ventania](https://www.last.fm/music/Ventania)                                 | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [John Mayer](https://www.last.fm/music/John+Mayer)                             | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Linked Horizon](https://www.last.fm/music/Linked+Horizon)                     | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [James Morrison](https://www.last.fm/music/James+Morrison)                     | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [James Blunt](https://www.last.fm/music/James+Blunt)                           | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [ASIAN KUNG-FU GENERATION](https://www.last.fm/music/ASIAN+KUNG-FU+GENERATION) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Jack Johnson](https://www.last.fm/music/Jack+Johnson)                         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [The Script](https://www.last.fm/music/The+Script)                             | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 | 10º [Colbie Caillat](https://www.last.fm/music/Colbie+Caillat)                    | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 07-05-2021 02:27:02 UTC
+🚀 **Última atualização:** 11-05-2021 02:27:02 UTC
