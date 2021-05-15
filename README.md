@@ -36,17 +36,17 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |                            🎧 Artistas da semana                            |                      📚 Últimos livros lidos                      |
 |-----------------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Yann Tiersen](https://www.last.fm/music/Yann+Tiersen)                   | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Ventania](https://www.last.fm/music/Ventania)                           | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Johann Sebastian Bach](https://www.last.fm/music/Johann+Sebastian+Bach) | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Avril Lavigne](https://www.last.fm/music/Avril+Lavigne)                 | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Ludwig van Beethoven](https://www.last.fm/music/Ludwig+van+Beethoven)   | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [David Guetta](https://www.last.fm/music/David+Guetta)                   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Dmitri Shostakovich](https://www.last.fm/music/Dmitri+Shostakovich)     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 2º [U2](https://www.last.fm/music/U2)                                       | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Nat King Cole](https://www.last.fm/music/Nat+King+Cole)                 | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Led Zeppelin](https://www.last.fm/music/Led+Zeppelin)                   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Johann Sebastian Bach](https://www.last.fm/music/Johann+Sebastian+Bach) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Bon Jovi](https://www.last.fm/music/Bon+Jovi)                           | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Ella Fitzgerald](https://www.last.fm/music/Ella+Fitzgerald)             | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 | 8º [Franz Schubert](https://www.last.fm/music/Franz+Schubert)               | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Frédéric Chopin](https://www.last.fm/music/Fr%C3%A9d%C3%A9ric+Chopin)   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Linked Horizon](https://www.last.fm/music/Linked+Horizon)              | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 9º [Journey](https://www.last.fm/music/Journey)                             | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Ludwig van Beethoven](https://www.last.fm/music/Ludwig+van+Beethoven)  | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 13-05-2021 02:27:02 UTC
+🚀 **Última atualização:** 15-05-2021 02:27:02 UTC
