@@ -35,11 +35,11 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                      🎧 Artistas da semana                      |                      📚 Últimos livros lidos                      |
 |-----------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [U2](https://www.last.fm/music/U2)                           | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Nat King Cole](https://www.last.fm/music/Nat+King+Cole)     | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Led Zeppelin](https://www.last.fm/music/Led+Zeppelin)       | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 1º [Nat King Cole](https://www.last.fm/music/Nat+King+Cole)     | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Led Zeppelin](https://www.last.fm/music/Led+Zeppelin)       | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)           | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Catedral](https://www.last.fm/music/Catedral)               | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 5º [Skank](https://www.last.fm/music/Skank)                     | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [Ventania](https://www.last.fm/music/Ventania)               | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 | 7º [Bon Jovi](https://www.last.fm/music/Bon+Jovi)               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 | 8º [Ella Fitzgerald](https://www.last.fm/music/Ella+Fitzgerald) | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
@@ -49,4 +49,4 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ---
 
-🚀 **Última atualização:** 19-05-2021 02:27:02 UTC
+🚀 **Última atualização:** 21-05-2021 02:27:02 UTC
