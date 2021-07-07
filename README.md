@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                               🎧 Artistas da semana                               |                      📚 Últimos livros lidos                      |
-|-----------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Eric Clapton](https://www.last.fm/music/Eric+Clapton)                         | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Linkin Park](https://www.last.fm/music/Linkin+Park)                           | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Savatage](https://www.last.fm/music/Savatage)                                 | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Stênio Marcius](https://www.last.fm/music/St%C3%AAnio+Marcius)                | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Chico Buarque](https://www.last.fm/music/Chico+Buarque)                       | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana)                  | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Mythos](https://www.last.fm/music/Mythos)                                     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                             | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Rage Against the Machine](https://www.last.fm/music/Rage+Against+the+Machine) | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Ruth Moody](https://www.last.fm/music/Ruth+Moody)                            | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                      🎧 Artistas da semana                      |                      📚 Últimos livros lidos                      |
+|-----------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Muse](https://www.last.fm/music/Muse)                       | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Blind Guardian](https://www.last.fm/music/Blind+Guardian)   | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Chico Buarque](https://www.last.fm/music/Chico+Buarque)     | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Gorillaz](https://www.last.fm/music/Gorillaz)               | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Lifehouse](https://www.last.fm/music/Lifehouse)             | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Louis Armstrong](https://www.last.fm/music/Louis+Armstrong) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Raul Seixas](https://www.last.fm/music/Raul+Seixas)         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Ruth Moody](https://www.last.fm/music/Ruth+Moody)           | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Savatage](https://www.last.fm/music/Savatage)              | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 05-07-2021 02:27:02 UTC
+🚀 **Última atualização:** 07-07-2021 02:27:02 UTC
