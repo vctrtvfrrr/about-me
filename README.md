@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                     🎧 Artistas da semana                     |                      📚 Últimos livros lidos                      |
-|---------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Green Day](https://www.last.fm/music/Green+Day)           | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Jason Mraz](https://www.last.fm/music/Jason+Mraz)         | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Muse](https://www.last.fm/music/Muse)                     | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)         | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Shaman](https://www.last.fm/music/Shaman)                 | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Aerosmith](https://www.last.fm/music/Aerosmith)           | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Audrey Assad](https://www.last.fm/music/Audrey+Assad)     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Avril Lavigne](https://www.last.fm/music/Avril+Lavigne)   | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Bon Jovi](https://www.last.fm/music/Bon+Jovi)             | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Céline Dion](https://www.last.fm/music/C%C3%A9line+Dion) | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                      🎧 Artistas da semana                      |                      📚 Últimos livros lidos                      |
+|-----------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Jason Mraz](https://www.last.fm/music/Jason+Mraz)           | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Guns N' Roses](https://www.last.fm/music/Guns+N%27+Roses)   | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Muse](https://www.last.fm/music/Muse)                       | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)           | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Aerosmith](https://www.last.fm/music/Aerosmith)             | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Audrey Assad](https://www.last.fm/music/Audrey+Assad)       | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Avril Lavigne](https://www.last.fm/music/Avril+Lavigne)     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Ella Fitzgerald](https://www.last.fm/music/Ella+Fitzgerald) | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Eric Clapton](https://www.last.fm/music/Eric+Clapton)       | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Green Day](https://www.last.fm/music/Green+Day)            | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 22-07-2021 02:27:02 UTC
+🚀 **Última atualização:** 23-07-2021 02:27:04 UTC
