@@ -11,7 +11,7 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 ## Informações
 
 - **Nome:** Victor Otávio Ferreira
-- **Idade:** 28 anos
+- **Idade:** 29 anos
 - **Localização:** Curitiba/PR
 
 [![](https://img.shields.io/badge/LinkedIn-victorotavio-blue)](https://www.linkedin.com/in/victorotavio/) [![](https://img.shields.io/badge/Twitter-@vctrtvfrrr-blue)](https://twitter.com/vctrtvfrrr)  
@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                       🎧 Artistas da semana                       |                      📚 Últimos livros lidos                      |
-|-------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Audrey Assad](https://www.last.fm/music/Audrey+Assad)         | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Luiz Gonzaga](https://www.last.fm/music/Luiz+Gonzaga)         | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Gorillaz](https://www.last.fm/music/Gorillaz)                 | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Linkin Park](https://www.last.fm/music/Linkin+Park)           | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Muse](https://www.last.fm/music/Muse)                         | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Shaman](https://www.last.fm/music/Shaman)                     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Switchfoot](https://www.last.fm/music/Switchfoot)             | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Theocracy](https://www.last.fm/music/Theocracy)               | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Tuatha de Danann](https://www.last.fm/music/Tuatha+de+Danann) | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Bad Religion](https://www.last.fm/music/Bad+Religion)        | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                      🎧 Artistas da semana                      |                      📚 Últimos livros lidos                      |
+|-----------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Audrey Assad](https://www.last.fm/music/Audrey+Assad)       | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Céline Dion](https://www.last.fm/music/C%C3%A9line+Dion)    | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Gorillaz](https://www.last.fm/music/Gorillaz)               | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Jason Mraz](https://www.last.fm/music/Jason+Mraz)           | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Theocracy](https://www.last.fm/music/Theocracy)             | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Arctic Monkeys](https://www.last.fm/music/Arctic+Monkeys)   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Backstreet Boys](https://www.last.fm/music/Backstreet+Boys) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Chico Buarque](https://www.last.fm/music/Chico+Buarque)     | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [David Gilmour](https://www.last.fm/music/David+Gilmour)     | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [DragonForce](https://www.last.fm/music/DragonForce)        | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 31-07-2021 02:27:02 UTC
+🚀 **Última atualização:** 05-08-2021 02:27:04 UTC
