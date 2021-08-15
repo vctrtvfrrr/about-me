@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                            🎧 Artistas da semana                            |                      📚 Últimos livros lidos                      |
-|-----------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Green Day](https://www.last.fm/music/Green+Day)                         | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Pato Fu](https://www.last.fm/music/Pato+Fu)                             | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Raul Seixas](https://www.last.fm/music/Raul+Seixas)                     | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Engenheiros Do Hawaii](https://www.last.fm/music/Engenheiros+Do+Hawaii) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Frédéric Chopin](https://www.last.fm/music/Fr%C3%A9d%C3%A9ric+Chopin)   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Heavy Metal Perse](https://www.last.fm/music/Heavy+Metal+Perse)         | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                       | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Pixies](https://www.last.fm/music/Pixies)                               | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Apocalyptica](https://www.last.fm/music/Apocalyptica)                  | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                               🎧 Artistas da semana                               |                      📚 Últimos livros lidos                      |
+|-----------------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Pato Fu](https://www.last.fm/music/Pato+Fu)                                   | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [YUI](https://www.last.fm/music/YUI)                                           | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Green Day](https://www.last.fm/music/Green+Day)                               | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Raul Seixas](https://www.last.fm/music/Raul+Seixas)                           | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers)       | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Uns e Outros](https://www.last.fm/music/Uns+e+Outros)                         | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [ASIAN KUNG-FU GENERATION](https://www.last.fm/music/ASIAN+KUNG-FU+GENERATION) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Engenheiros Do Hawaii](https://www.last.fm/music/Engenheiros+Do+Hawaii)       | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Frédéric Chopin](https://www.last.fm/music/Fr%C3%A9d%C3%A9ric+Chopin)         | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Heavy Metal Perse](https://www.last.fm/music/Heavy+Metal+Perse)              | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 13-08-2021 02:27:03 UTC
+🚀 **Última atualização:** 15-08-2021 02:27:02 UTC
