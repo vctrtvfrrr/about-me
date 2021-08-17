@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                                                         🎧 Artistas da semana                                                         |                      📚 Últimos livros lidos                      |
-|---------------------------------------------------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Pato Fu](https://www.last.fm/music/Pato+Fu)                                                                                       | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [YUI](https://www.last.fm/music/YUI)                                                                                               | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Scandal](https://www.last.fm/music/Scandal)                                                                                       | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [スキマスイッチ](https://www.last.fm/music/%E3%82%B9%E3%82%AD%E3%83%9E%E3%82%B9%E3%82%A4%E3%83%83%E3%83%81)                        | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Green Day](https://www.last.fm/music/Green+Day)                                                                                   | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Kana Nishino](https://www.last.fm/music/Kana+Nishino)                                                                             | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Raul Seixas](https://www.last.fm/music/Raul+Seixas)                                                                               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers)                                                           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Uns e Outros](https://www.last.fm/music/Uns+e+Outros)                                                                             | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [ポルノグラフィティ](https://www.last.fm/music/%E3%83%9D%E3%83%AB%E3%83%8E%E3%82%B0%E3%83%A9%E3%83%95%E3%82%A3%E3%83%86%E3%82%A3) | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                                                        🎧 Artistas da semana                                                         |                      📚 Últimos livros lidos                      |
+|--------------------------------------------------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Pato Fu](https://www.last.fm/music/Pato+Fu)                                                                                      | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [YUI](https://www.last.fm/music/YUI)                                                                                              | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [スキマスイッチ](https://www.last.fm/music/%E3%82%B9%E3%82%AD%E3%83%9E%E3%82%B9%E3%82%A4%E3%83%83%E3%83%81)                       | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [ポルノグラフィティ](https://www.last.fm/music/%E3%83%9D%E3%83%AB%E3%83%8E%E3%82%B0%E3%83%A9%E3%83%95%E3%82%A3%E3%83%86%E3%82%A3) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [ASIAN KUNG-FU GENERATION](https://www.last.fm/music/ASIAN+KUNG-FU+GENERATION)                                                    | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Scandal](https://www.last.fm/music/Scandal)                                                                                      | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Green Day](https://www.last.fm/music/Green+Day)                                                                                  | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Kana Nishino](https://www.last.fm/music/Kana+Nishino)                                                                            | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Raul Seixas](https://www.last.fm/music/Raul+Seixas)                                                                              | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Uns e Outros](https://www.last.fm/music/Uns+e+Outros)                                                                           | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 16-08-2021 02:27:04 UTC
+🚀 **Última atualização:** 17-08-2021 02:27:03 UTC
