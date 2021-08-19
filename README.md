@@ -39,14 +39,14 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 2º [YUI](https://www.last.fm/music/YUI)                                                                                              | A Arte da Guerra	–	_Sun Tzu_                                        |
 | 3º [スキマスイッチ](https://www.last.fm/music/%E3%82%B9%E3%82%AD%E3%83%9E%E3%82%B9%E3%82%A4%E3%83%83%E3%83%81)                       | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [ポルノグラフィティ](https://www.last.fm/music/%E3%83%9D%E3%83%AB%E3%83%8E%E3%82%B0%E3%83%A9%E3%83%95%E3%82%A3%E3%83%86%E3%82%A3) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [ASIAN KUNG-FU GENERATION](https://www.last.fm/music/ASIAN+KUNG-FU+GENERATION)                                                    | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Scandal](https://www.last.fm/music/Scandal)                                                                                      | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Green Day](https://www.last.fm/music/Green+Day)                                                                                  | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Kana Nishino](https://www.last.fm/music/Kana+Nishino)                                                                            | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Raul Seixas](https://www.last.fm/music/Raul+Seixas)                                                                              | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Uns e Outros](https://www.last.fm/music/Uns+e+Outros)                                                                           | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 5º [Scandal](https://www.last.fm/music/Scandal)                                                                                      | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [ASIAN KUNG-FU GENERATION](https://www.last.fm/music/ASIAN+KUNG-FU+GENERATION)                                                    | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Kana Nishino](https://www.last.fm/music/Kana+Nishino)                                                                            | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [大塚愛](https://www.last.fm/music/%E5%A4%A7%E5%A1%9A%E6%84%9B)                                                                   | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Milton Nascimento](https://www.last.fm/music/Milton+Nascimento)                                                                  | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Chemistry](https://www.last.fm/music/Chemistry)                                                                                 | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 17-08-2021 02:27:03 UTC
+🚀 **Última atualização:** 19-08-2021 02:27:05 UTC
