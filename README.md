@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                                                        🎧 Artistas da semana                                                         |                      📚 Últimos livros lidos                      |
-|--------------------------------------------------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Josh Garrels](https://www.last.fm/music/Josh+Garrels)                                                                            | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [ASIAN KUNG-FU GENERATION](https://www.last.fm/music/ASIAN+KUNG-FU+GENERATION)                                                    | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Of Monsters and Men](https://www.last.fm/music/Of+Monsters+and+Men)                                                              | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [ポルノグラフィティ](https://www.last.fm/music/%E3%83%9D%E3%83%AB%E3%83%8E%E3%82%B0%E3%83%A9%E3%83%95%E3%82%A3%E3%83%86%E3%82%A3) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Jack Johnson](https://www.last.fm/music/Jack+Johnson)                                                                            | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Projeto Sola](https://www.last.fm/music/Projeto+Sola)                                                                            | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Sid](https://www.last.fm/music/Sid)                                                                                              | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Audrey Assad](https://www.last.fm/music/Audrey+Assad)                                                                            | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Chemistry](https://www.last.fm/music/Chemistry)                                                                                  | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Hako Yamasaki](https://www.last.fm/music/Hako+Yamasaki)                                                                         | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                                  🎧 Artistas da semana                                   |                      📚 Últimos livros lidos                      |
+|------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Josh Garrels](https://www.last.fm/music/Josh+Garrels)                                | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Of Monsters and Men](https://www.last.fm/music/Of+Monsters+and+Men)                  | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Jack Johnson](https://www.last.fm/music/Jack+Johnson)                                | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [KinokoTeikoku](https://www.last.fm/music/KinokoTeikoku)                              | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Projeto Sola](https://www.last.fm/music/Projeto+Sola)                                | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Sid](https://www.last.fm/music/Sid)                                                  | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [宇宙ネコ子](https://www.last.fm/music/%E5%AE%87%E5%AE%99%E3%83%8D%E3%82%B3%E5%AD%90) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Aqua Timez](https://www.last.fm/music/Aqua+Timez)                                    | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Audrey Assad](https://www.last.fm/music/Audrey+Assad)                                | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Hako Yamasaki](https://www.last.fm/music/Hako+Yamasaki)                             | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 23-08-2021 02:27:04 UTC
+🚀 **Última atualização:** 25-08-2021 02:27:04 UTC
