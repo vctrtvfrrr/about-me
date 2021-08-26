@@ -40,13 +40,13 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 3º [Jack Johnson](https://www.last.fm/music/Jack+Johnson)                                | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [KinokoTeikoku](https://www.last.fm/music/KinokoTeikoku)                              | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Projeto Sola](https://www.last.fm/music/Projeto+Sola)                                | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Sid](https://www.last.fm/music/Sid)                                                  | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [宇宙ネコ子](https://www.last.fm/music/%E5%AE%87%E5%AE%99%E3%83%8D%E3%82%B3%E5%AD%90) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Aqua Timez](https://www.last.fm/music/Aqua+Timez)                                    | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Audrey Assad](https://www.last.fm/music/Audrey+Assad)                                | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Hako Yamasaki](https://www.last.fm/music/Hako+Yamasaki)                             | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 6º [Sayuri](https://www.last.fm/music/Sayuri)                                            | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Shoko Nakagawa](https://www.last.fm/music/Shoko+Nakagawa)                            | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Sid](https://www.last.fm/music/Sid)                                                  | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [宇宙ネコ子](https://www.last.fm/music/%E5%AE%87%E5%AE%99%E3%83%8D%E3%82%B3%E5%AD%90) | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Aqua Timez](https://www.last.fm/music/Aqua+Timez)                                   | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 25-08-2021 02:27:04 UTC
+🚀 **Última atualização:** 26-08-2021 02:27:05 UTC
