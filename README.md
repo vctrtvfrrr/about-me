@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                                  🎧 Artistas da semana                                   |                      📚 Últimos livros lidos                      |
-|------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Josh Garrels](https://www.last.fm/music/Josh+Garrels)                                | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Of Monsters and Men](https://www.last.fm/music/Of+Monsters+and+Men)                  | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Jack Johnson](https://www.last.fm/music/Jack+Johnson)                                | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [KinokoTeikoku](https://www.last.fm/music/KinokoTeikoku)                              | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Projeto Sola](https://www.last.fm/music/Projeto+Sola)                                | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Sayuri](https://www.last.fm/music/Sayuri)                                            | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Shoko Nakagawa](https://www.last.fm/music/Shoko+Nakagawa)                            | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Sid](https://www.last.fm/music/Sid)                                                  | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [宇宙ネコ子](https://www.last.fm/music/%E5%AE%87%E5%AE%99%E3%83%8D%E3%82%B3%E5%AD%90) | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Aqua Timez](https://www.last.fm/music/Aqua+Timez)                                   | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                          🎧 Artistas da semana                          |                      📚 Últimos livros lidos                      |
+|-------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Josh Garrels](https://www.last.fm/music/Josh+Garrels)               | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Of Monsters and Men](https://www.last.fm/music/Of+Monsters+and+Men) | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Jack Johnson](https://www.last.fm/music/Jack+Johnson)               | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [KinokoTeikoku](https://www.last.fm/music/KinokoTeikoku)             | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Projeto Sola](https://www.last.fm/music/Projeto+Sola)               | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Sayuri](https://www.last.fm/music/Sayuri)                           | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Shoko Nakagawa](https://www.last.fm/music/Shoko+Nakagawa)           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Sid](https://www.last.fm/music/Sid)                                 | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Aqua Timez](https://www.last.fm/music/Aqua+Timez)                   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Audrey Assad](https://www.last.fm/music/Audrey+Assad)              | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 26-08-2021 02:27:05 UTC
+🚀 **Última atualização:** 27-08-2021 02:27:04 UTC
