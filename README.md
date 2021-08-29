@@ -35,18 +35,18 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                                  🎧 Artistas da semana                                   |                      📚 Últimos livros lidos                      |
 |------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Josh Garrels](https://www.last.fm/music/Josh+Garrels)                                | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Of Monsters and Men](https://www.last.fm/music/Of+Monsters+and+Men)                  | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Jack Johnson](https://www.last.fm/music/Jack+Johnson)                                | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [KinokoTeikoku](https://www.last.fm/music/KinokoTeikoku)                              | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Projeto Sola](https://www.last.fm/music/Projeto+Sola)                                | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Sayuri](https://www.last.fm/music/Sayuri)                                            | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Shoko Nakagawa](https://www.last.fm/music/Shoko+Nakagawa)                            | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Sid](https://www.last.fm/music/Sid)                                                  | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [宇宙ネコ子](https://www.last.fm/music/%E5%AE%87%E5%AE%99%E3%83%8D%E3%82%B3%E5%AD%90) | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Aqua Timez](https://www.last.fm/music/Aqua+Timez)                                   | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 1º [KinokoTeikoku](https://www.last.fm/music/KinokoTeikoku)                              | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Sayuri](https://www.last.fm/music/Sayuri)                                            | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Shoko Nakagawa](https://www.last.fm/music/Shoko+Nakagawa)                            | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Sid](https://www.last.fm/music/Sid)                                                  | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [宇宙ネコ子](https://www.last.fm/music/%E5%AE%87%E5%AE%99%E3%83%8D%E3%82%B3%E5%AD%90) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Aqua Timez](https://www.last.fm/music/Aqua+Timez)                                    | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Eir Aoi](https://www.last.fm/music/Eir+Aoi)                                          | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [toe](https://www.last.fm/music/toe)                                                  | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Aimer](https://www.last.fm/music/Aimer)                                              | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [ASCA](https://www.last.fm/music/ASCA)                                               | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 28-08-2021 02:27:02 UTC
+🚀 **Última atualização:** 29-08-2021 02:27:03 UTC
