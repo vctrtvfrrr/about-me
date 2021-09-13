@@ -35,18 +35,18 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                                                        🎧 Artistas da semana                                                         |                      📚 Últimos livros lidos                      |
 |--------------------------------------------------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Kansas](https://www.last.fm/music/Kansas)                                                                                        | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Bob Marley & The Wailers](https://www.last.fm/music/Bob+Marley+&+The+Wailers)                                                    | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [ポルノグラフィティ](https://www.last.fm/music/%E3%83%9D%E3%83%AB%E3%83%8E%E3%82%B0%E3%83%A9%E3%83%95%E3%82%A3%E3%83%86%E3%82%A3) | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Led Zeppelin](https://www.last.fm/music/Led+Zeppelin)                                                                            | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Queen](https://www.last.fm/music/Queen)                                                                                          | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [本田美奈子](https://www.last.fm/music/%E6%9C%AC%E7%94%B0%E7%BE%8E%E5%A5%88%E5%AD%90)                                             | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Brian the Sun](https://www.last.fm/music/Brian+the+Sun)                                                                          | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Daft Punk](https://www.last.fm/music/Daft+Punk)                                                                                  | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Metro-Ongen](https://www.last.fm/music/Metro-Ongen)                                                                              | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [S. Kiyotaka & Omega Tribe](https://www.last.fm/music/S.+Kiyotaka+&+Omega+Tribe)                                                 | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 1º [ポルノグラフィティ](https://www.last.fm/music/%E3%83%9D%E3%83%AB%E3%83%8E%E3%82%B0%E3%83%A9%E3%83%95%E3%82%A3%E3%83%86%E3%82%A3) | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Led Zeppelin](https://www.last.fm/music/Led+Zeppelin)                                                                            | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Queen](https://www.last.fm/music/Queen)                                                                                          | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [本田美奈子](https://www.last.fm/music/%E6%9C%AC%E7%94%B0%E7%BE%8E%E5%A5%88%E5%AD%90)                                             | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Brian the Sun](https://www.last.fm/music/Brian+the+Sun)                                                                          | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Daft Punk](https://www.last.fm/music/Daft+Punk)                                                                                  | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Metro-Ongen](https://www.last.fm/music/Metro-Ongen)                                                                              | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [S. Kiyotaka & Omega Tribe](https://www.last.fm/music/S.+Kiyotaka+&+Omega+Tribe)                                                  | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [The Beatles](https://www.last.fm/music/The+Beatles)                                                                              | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [The Doors](https://www.last.fm/music/The+Doors)                                                                                 | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 11-09-2021 02:27:05 UTC
+🚀 **Última atualização:** 13-09-2021 02:27:02 UTC
