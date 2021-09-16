@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                                  🎧 Artistas da semana                                   |                      📚 Últimos livros lidos                      |
-|------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Metro-Ongen](https://www.last.fm/music/Metro-Ongen)                                  | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [SHISHAMO](https://www.last.fm/music/SHISHAMO)                                        | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [eastern youth](https://www.last.fm/music/eastern+youth)                              | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Gesu No Kiwami Otome](https://www.last.fm/music/Gesu+No+Kiwami+Otome)                | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [UNCHAIN](https://www.last.fm/music/UNCHAIN)                                          | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [宇宙ネコ子](https://www.last.fm/music/%E5%AE%87%E5%AE%99%E3%83%8D%E3%82%B3%E5%AD%90) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Age Factory](https://www.last.fm/music/Age+Factory)                                  | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [ART-SCHOOL](https://www.last.fm/music/ART-SCHOOL)                                    | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Base Ball Bear](https://www.last.fm/music/Base+Ball+Bear)                            | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [bentham](https://www.last.fm/music/bentham)                                         | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                               🎧 Artistas da semana                               |                      📚 Últimos livros lidos                      |
+|-----------------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab)                | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Gesu No Kiwami Otome](https://www.last.fm/music/Gesu+No+Kiwami+Otome)         | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Metro-Ongen](https://www.last.fm/music/Metro-Ongen)                           | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [SHISHAMO](https://www.last.fm/music/SHISHAMO)                                 | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [ASIAN KUNG-FU GENERATION](https://www.last.fm/music/ASIAN+KUNG-FU+GENERATION) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Base Ball Bear](https://www.last.fm/music/Base+Ball+Bear)                     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [eastern youth](https://www.last.fm/music/eastern+youth)                       | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [PLASTIC GIRL IN CLOSET](https://www.last.fm/music/PLASTIC+GIRL+IN+CLOSET)     | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [QOOLAND](https://www.last.fm/music/QOOLAND)                                   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [RADWIMPS](https://www.last.fm/music/RADWIMPS)                                | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 15-09-2021 02:27:04 UTC
+🚀 **Última atualização:** 16-09-2021 02:27:04 UTC
