@@ -36,17 +36,17 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |                               🎧 Artistas da semana                               |                      📚 Últimos livros lidos                      |
 |-----------------------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab)                | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [PLASTIC GIRL IN CLOSET](https://www.last.fm/music/PLASTIC+GIRL+IN+CLOSET)     | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Gesu No Kiwami Otome](https://www.last.fm/music/Gesu+No+Kiwami+Otome)         | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [SWIM SWEET UNDER SHALLOW](https://www.last.fm/music/SWIM+SWEET+UNDER+SHALLOW) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [ART-SCHOOL](https://www.last.fm/music/ART-SCHOOL)                             | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [ASIAN KUNG-FU GENERATION](https://www.last.fm/music/ASIAN+KUNG-FU+GENERATION) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [BRADIO](https://www.last.fm/music/BRADIO)                                     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Group Action](https://www.last.fm/music/Group+Action)                         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Shiggy Jr.](https://www.last.fm/music/Shiggy+Jr.)                             | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Spangle call Lilli line](https://www.last.fm/music/Spangle+call+Lilli+line)  | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 2º [SWIM SWEET UNDER SHALLOW](https://www.last.fm/music/SWIM+SWEET+UNDER+SHALLOW) | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [ART-SCHOOL](https://www.last.fm/music/ART-SCHOOL)                             | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [bentham](https://www.last.fm/music/bentham)                                   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [KinokoTeikoku](https://www.last.fm/music/KinokoTeikoku)                       | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Shiggy Jr.](https://www.last.fm/music/Shiggy+Jr.)                             | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [岡村靖幸](https://www.last.fm/music/%E5%B2%A1%E6%9D%91%E9%9D%96%E5%B9%B8)     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [ACIDMAN](https://www.last.fm/music/ACIDMAN)                                   | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [akaironoglitter](https://www.last.fm/music/akaironoglitter)                   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [AoBoZu](https://www.last.fm/music/AoBoZu)                                    | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 22-09-2021 02:27:07 UTC
+🚀 **Última atualização:** 23-09-2021 02:27:01 UTC
