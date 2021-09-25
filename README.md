@@ -35,12 +35,12 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                               🎧 Artistas da semana                               |                      📚 Últimos livros lidos                      |
 |-----------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab)                | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [SWIM SWEET UNDER SHALLOW](https://www.last.fm/music/SWIM+SWEET+UNDER+SHALLOW) | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [ART-SCHOOL](https://www.last.fm/music/ART-SCHOOL)                             | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [bentham](https://www.last.fm/music/bentham)                                   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [KinokoTeikoku](https://www.last.fm/music/KinokoTeikoku)                       | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Shiggy Jr.](https://www.last.fm/music/Shiggy+Jr.)                             | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 1º [ART-SCHOOL](https://www.last.fm/music/ART-SCHOOL)                             | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [indigo la End](https://www.last.fm/music/indigo+la+End)                       | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [KinokoTeikoku](https://www.last.fm/music/KinokoTeikoku)                       | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Leigh Nash](https://www.last.fm/music/Leigh+Nash)                             | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Linkin Park](https://www.last.fm/music/Linkin+Park)                           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [SWIM SWEET UNDER SHALLOW](https://www.last.fm/music/SWIM+SWEET+UNDER+SHALLOW) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 | 7º [岡村靖幸](https://www.last.fm/music/%E5%B2%A1%E6%9D%91%E9%9D%96%E5%B9%B8)     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 | 8º [ACIDMAN](https://www.last.fm/music/ACIDMAN)                                   | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 | 9º [akaironoglitter](https://www.last.fm/music/akaironoglitter)                   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
@@ -49,4 +49,4 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ---
 
-🚀 **Última atualização:** 23-09-2021 02:27:01 UTC
+🚀 **Última atualização:** 25-09-2021 02:27:02 UTC
