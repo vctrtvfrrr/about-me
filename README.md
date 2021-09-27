@@ -40,13 +40,13 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 3º [KinokoTeikoku](https://www.last.fm/music/KinokoTeikoku)                       | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Leigh Nash](https://www.last.fm/music/Leigh+Nash)                             | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Linkin Park](https://www.last.fm/music/Linkin+Park)                           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [SWIM SWEET UNDER SHALLOW](https://www.last.fm/music/SWIM+SWEET+UNDER+SHALLOW) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [岡村靖幸](https://www.last.fm/music/%E5%B2%A1%E6%9D%91%E9%9D%96%E5%B9%B8)     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [ACIDMAN](https://www.last.fm/music/ACIDMAN)                                   | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [akaironoglitter](https://www.last.fm/music/akaironoglitter)                   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [AoBoZu](https://www.last.fm/music/AoBoZu)                                    | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 6º [Sixpence None the Richer](https://www.last.fm/music/Sixpence+None+the+Richer) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [SWIM SWEET UNDER SHALLOW](https://www.last.fm/music/SWIM+SWEET+UNDER+SHALLOW) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [岡村靖幸](https://www.last.fm/music/%E5%B2%A1%E6%9D%91%E9%9D%96%E5%B9%B8)     | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [ACIDMAN](https://www.last.fm/music/ACIDMAN)                                   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [akaironoglitter](https://www.last.fm/music/akaironoglitter)                  | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 26-09-2021 02:27:01 UTC
+🚀 **Última atualização:** 27-09-2021 02:27:03 UTC
