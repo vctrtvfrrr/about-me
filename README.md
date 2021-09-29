@@ -36,17 +36,17 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |                                   🎧 Artistas da semana                                   |                      📚 Últimos livros lidos                      |
 |-------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Linkin Park](https://www.last.fm/music/Linkin+Park)                                   | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Edu Lobo](https://www.last.fm/music/Edu+Lobo)                                         | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Fruto Sagrado](https://www.last.fm/music/Fruto+Sagrado)                               | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Raul Seixas](https://www.last.fm/music/Raul+Seixas)                                   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers)               | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Sixpence None the Richer](https://www.last.fm/music/Sixpence+None+the+Richer)         | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Coldplay](https://www.last.fm/music/Coldplay)                                         | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Creedence Clearwater Revival](https://www.last.fm/music/Creedence+Clearwater+Revival) | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Leigh Nash](https://www.last.fm/music/Leigh+Nash)                                     | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Los Hermanos](https://www.last.fm/music/Los+Hermanos)                                | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 2º [Sixpence None the Richer](https://www.last.fm/music/Sixpence+None+the+Richer)         | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Creedence Clearwater Revival](https://www.last.fm/music/Creedence+Clearwater+Revival) | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Edu Lobo](https://www.last.fm/music/Edu+Lobo)                                         | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Fruto Sagrado](https://www.last.fm/music/Fruto+Sagrado)                               | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Raul Seixas](https://www.last.fm/music/Raul+Seixas)                                   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers)               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Coldplay](https://www.last.fm/music/Coldplay)                                         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Gorillaz](https://www.last.fm/music/Gorillaz)                                         | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Leigh Nash](https://www.last.fm/music/Leigh+Nash)                                    | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 28-09-2021 02:27:01 UTC
+🚀 **Última atualização:** 29-09-2021 02:27:01 UTC
