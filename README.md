@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                      🎧 Artistas da semana                      |                      📚 Últimos livros lidos                      |
-|-----------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Racionais MC's](https://www.last.fm/music/Racionais+MC%27s) | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Criolo](https://www.last.fm/music/Criolo)                   | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Leigh Nash](https://www.last.fm/music/Leigh+Nash)           | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Simple Plan](https://www.last.fm/music/Simple+Plan)         | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Tim Maia](https://www.last.fm/music/Tim+Maia)               | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Band of Horses](https://www.last.fm/music/Band+of+Horses)   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Lesiëm](https://www.last.fm/music/Lesi%C3%ABm)              | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Blind Guardian](https://www.last.fm/music/Blind+Guardian)   | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Catedral](https://www.last.fm/music/Catedral)               | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Gorillaz](https://www.last.fm/music/Gorillaz)              | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                                  🎧 Artistas da semana                                   |                      📚 Últimos livros lidos                      |
+|------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Leigh Nash](https://www.last.fm/music/Leigh+Nash)                                    | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Racionais MC's](https://www.last.fm/music/Racionais+MC%27s)                          | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Tim Maia](https://www.last.fm/music/Tim+Maia)                                        | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Band of Horses](https://www.last.fm/music/Band+of+Horses)                            | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Lesiëm](https://www.last.fm/music/Lesi%C3%ABm)                                       | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [NUMBER GIRL](https://www.last.fm/music/NUMBER+GIRL)                                  | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [宇宙ネコ子](https://www.last.fm/music/%E5%AE%87%E5%AE%99%E3%83%8D%E3%82%B3%E5%AD%90) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Blind Guardian](https://www.last.fm/music/Blind+Guardian)                            | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [bôa](https://www.last.fm/music/b%C3%B4a)                                             | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Catedral](https://www.last.fm/music/Catedral)                                       | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 16-10-2021 02:27:02 UTC
+🚀 **Última atualização:** 17-10-2021 02:27:07 UTC
