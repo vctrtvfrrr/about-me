@@ -36,11 +36,11 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |                                   🎧 Artistas da semana                                   |                      📚 Últimos livros lidos                      |
 |-------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Anathema](https://www.last.fm/music/Anathema)                                         | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [The Smiths](https://www.last.fm/music/The+Smiths)                                     | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [A Perfect Circle](https://www.last.fm/music/A+Perfect+Circle)                         | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [O Rappa](https://www.last.fm/music/O+Rappa)                                           | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Nat King Cole](https://www.last.fm/music/Nat+King+Cole)                               | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Led Zeppelin](https://www.last.fm/music/Led+Zeppelin)                                 | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 2º [Led Zeppelin](https://www.last.fm/music/Led+Zeppelin)                                 | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [The Smiths](https://www.last.fm/music/The+Smiths)                                     | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [A Perfect Circle](https://www.last.fm/music/A+Perfect+Circle)                         | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [O Rappa](https://www.last.fm/music/O+Rappa)                                           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Nat King Cole](https://www.last.fm/music/Nat+King+Cole)                               | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 | 7º [Leigh Nash](https://www.last.fm/music/Leigh+Nash)                                     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 | 8º [Tim Maia](https://www.last.fm/music/Tim+Maia)                                         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 | 9º [Racionais MC's](https://www.last.fm/music/Racionais+MC%27s)                           | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
@@ -49,4 +49,4 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ---
 
-🚀 **Última atualização:** 21-10-2021 02:27:02 UTC
+🚀 **Última atualização:** 22-10-2021 02:27:02 UTC
