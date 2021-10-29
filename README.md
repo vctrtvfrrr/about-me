@@ -35,18 +35,18 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                       🎧 Artistas da semana                       |                      📚 Últimos livros lidos                      |
 |-------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Led Zeppelin](https://www.last.fm/music/Led+Zeppelin)         | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Zeca Baleiro](https://www.last.fm/music/Zeca+Baleiro)         | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Joni Mitchell](https://www.last.fm/music/Joni+Mitchell)       | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 1º [Zeca Baleiro](https://www.last.fm/music/Zeca+Baleiro)         | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Joni Mitchell](https://www.last.fm/music/Joni+Mitchell)       | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [System of a Down](https://www.last.fm/music/System+of+a+Down) | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Bezerra da Silva](https://www.last.fm/music/Bezerra+da+Silva) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Simple Plan](https://www.last.fm/music/Simple+Plan)           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [America](https://www.last.fm/music/America)                   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 | 7º [Band of Horses](https://www.last.fm/music/Band+of+Horses)     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 | 8º [Epica](https://www.last.fm/music/Epica)                       | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 | 9º [Scorpions](https://www.last.fm/music/Scorpions)               | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Louis Armstrong](https://www.last.fm/music/Louis+Armstrong)  | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 10º [Superfly](https://www.last.fm/music/Superfly)                | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 28-10-2021 02:27:03 UTC
+🚀 **Última atualização:** 29-10-2021 02:27:01 UTC
