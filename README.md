@@ -35,18 +35,18 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                               🎧 Artistas da semana                               |                      📚 Últimos livros lidos                      |
 |-----------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [OGRE YOU ASSHOLE](https://www.last.fm/music/OGRE+YOU+ASSHOLE)                 | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [ame_no_parade](https://www.last.fm/music/ame_no_parade)                       | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [ASIAN KUNG-FU GENERATION](https://www.last.fm/music/ASIAN+KUNG-FU+GENERATION) | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Balls](https://www.last.fm/music/Balls)                                       | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Base Ball Bear](https://www.last.fm/music/Base+Ball+Bear)                     | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Scoobie Do](https://www.last.fm/music/Scoobie+Do)                             | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [1000say](https://www.last.fm/music/1000say)                                   | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [ACO](https://www.last.fm/music/ACO)                                           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [akaironoglitter](https://www.last.fm/music/akaironoglitter)                   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 1º [ACO](https://www.last.fm/music/ACO)                                           | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Lucie,Too](https://www.last.fm/music/Lucie,Too)                               | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Scoobie Do](https://www.last.fm/music/Scoobie+Do)                             | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [The Pinballs](https://www.last.fm/music/The+Pinballs)                         | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Al](https://www.last.fm/music/Al)                                             | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [ame_no_parade](https://www.last.fm/music/ame_no_parade)                       | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [ASIAN KUNG-FU GENERATION](https://www.last.fm/music/ASIAN+KUNG-FU+GENERATION) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Balls](https://www.last.fm/music/Balls)                                       | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Base Ball Bear](https://www.last.fm/music/Base+Ball+Bear)                     | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 | 10º [bentham](https://www.last.fm/music/bentham)                                  | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 05-11-2021 02:27:01 UTC
+🚀 **Última atualização:** 07-11-2021 02:27:02 UTC
