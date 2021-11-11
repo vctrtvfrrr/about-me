@@ -35,18 +35,18 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                               🎧 Artistas da semana                               |                      📚 Últimos livros lidos                      |
 |-----------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [ACO](https://www.last.fm/music/ACO)                                           | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Lucie,Too](https://www.last.fm/music/Lucie,Too)                               | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Scoobie Do](https://www.last.fm/music/Scoobie+Do)                             | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [The Pinballs](https://www.last.fm/music/The+Pinballs)                         | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Al](https://www.last.fm/music/Al)                                             | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [ame_no_parade](https://www.last.fm/music/ame_no_parade)                       | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [ASIAN KUNG-FU GENERATION](https://www.last.fm/music/ASIAN+KUNG-FU+GENERATION) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Balls](https://www.last.fm/music/Balls)                                       | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Base Ball Bear](https://www.last.fm/music/Base+Ball+Bear)                     | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [bentham](https://www.last.fm/music/bentham)                                  | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 1º [plenty](https://www.last.fm/music/plenty)                                     | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [SWIM SWEET UNDER SHALLOW](https://www.last.fm/music/SWIM+SWEET+UNDER+SHALLOW) | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [ASIAN KUNG-FU GENERATION](https://www.last.fm/music/ASIAN+KUNG-FU+GENERATION) | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [mitsume](https://www.last.fm/music/mitsume)                                   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Siamese Cats](https://www.last.fm/music/Siamese+Cats)                         | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [akaironoglitter](https://www.last.fm/music/akaironoglitter)                   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Inshow ha](https://www.last.fm/music/Inshow+ha)                               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [LAMP IN TERREN](https://www.last.fm/music/LAMP+IN+TERREN)                     | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [PELICAN FANCLUB](https://www.last.fm/music/PELICAN+FANCLUB)                   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Scoobie Do](https://www.last.fm/music/Scoobie+Do)                            | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 07-11-2021 02:27:02 UTC
+🚀 **Última atualização:** 11-11-2021 02:27:01 UTC
