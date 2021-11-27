@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                                        🎧 Artistas da semana                                        |                      📚 Últimos livros lidos                      |
-|-----------------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Mono](https://www.last.fm/music/Mono)                                                           | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Boa](https://www.last.fm/music/Boa)                                                             | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [林原めぐみ](https://www.last.fm/music/%E6%9E%97%E5%8E%9F%E3%82%81%E3%81%90%E3%81%BF)            | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Asobi Seksu](https://www.last.fm/music/Asobi+Seksu)                                             | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Kitaro](https://www.last.fm/music/Kitaro)                                                       | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [YUI](https://www.last.fm/music/YUI)                                                             | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [宇宙ネコ子](https://www.last.fm/music/%E5%AE%87%E5%AE%99%E3%83%8D%E3%82%B3%E5%AD%90)            | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Boris](https://www.last.fm/music/Boris)                                                         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [宇多田ヒカル](https://www.last.fm/music/%E5%AE%87%E5%A4%9A%E7%94%B0%E3%83%92%E3%82%AB%E3%83%AB) | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [ASIAN KUNG-FU GENERATION](https://www.last.fm/music/ASIAN+KUNG-FU+GENERATION)                  | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                                             🎧 Artistas da semana                                              |                      📚 Últimos livros lidos                      |
+|----------------------------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [林原めぐみ](https://www.last.fm/music/%E6%9E%97%E5%8E%9F%E3%82%81%E3%81%90%E3%81%BF)                       | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [スキマスイッチ](https://www.last.fm/music/%E3%82%B9%E3%82%AD%E3%83%9E%E3%82%B9%E3%82%A4%E3%83%83%E3%83%81) | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [ASIAN KUNG-FU GENERATION](https://www.last.fm/music/ASIAN+KUNG-FU+GENERATION)                              | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [いきものがかり](https://www.last.fm/music/%E3%81%84%E3%81%8D%E3%82%82%E3%81%AE%E3%81%8C%E3%81%8B%E3%82%8A) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [宇宙ネコ子](https://www.last.fm/music/%E5%AE%87%E5%AE%99%E3%83%8D%E3%82%B3%E5%AD%90)                       | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [YUI](https://www.last.fm/music/YUI)                                                                        | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Linked Horizon](https://www.last.fm/music/Linked+Horizon)                                                  | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Scandal](https://www.last.fm/music/Scandal)                                                                | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [KinokoTeikoku](https://www.last.fm/music/KinokoTeikoku)                                                    | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Shoko Nakagawa](https://www.last.fm/music/Shoko+Nakagawa)                                                 | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 23-11-2021 02:27:02 UTC
+🚀 **Última atualização:** 27-11-2021 02:27:02 UTC
