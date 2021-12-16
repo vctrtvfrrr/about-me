@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                                              🎧 Artistas da semana                                              |                      📚 Últimos livros lidos                      |
-|-----------------------------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [ASIAN KUNG-FU GENERATION](https://www.last.fm/music/ASIAN+KUNG-FU+GENERATION)                               | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Radiohead](https://www.last.fm/music/Radiohead)                                                             | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [宇宙ネコ子](https://www.last.fm/music/%E5%AE%87%E5%AE%99%E3%83%8D%E3%82%B3%E5%AD%90)                        | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Green Day](https://www.last.fm/music/Green+Day)                                                             | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [RADWIMPS](https://www.last.fm/music/RADWIMPS)                                                               | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Scandal](https://www.last.fm/music/Scandal)                                                                 | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [The Smashing Pumpkins](https://www.last.fm/music/The+Smashing+Pumpkins)                                     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [UNISON SQUARE GARDEN](https://www.last.fm/music/UNISON+SQUARE+GARDEN)                                       | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [YUI](https://www.last.fm/music/YUI)                                                                         | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [スキマスイッチ](https://www.last.fm/music/%E3%82%B9%E3%82%AD%E3%83%9E%E3%82%B9%E3%82%A4%E3%83%83%E3%83%81) | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                                  🎧 Artistas da semana                                   |                      📚 Últimos livros lidos                      |
+|------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [OGRE YOU ASSHOLE](https://www.last.fm/music/OGRE+YOU+ASSHOLE)                        | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [ASIAN KUNG-FU GENERATION](https://www.last.fm/music/ASIAN+KUNG-FU+GENERATION)        | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [宇宙ネコ子](https://www.last.fm/music/%E5%AE%87%E5%AE%99%E3%83%8D%E3%82%B3%E5%AD%90) | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Radiohead](https://www.last.fm/music/Radiohead)                                      | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [The Smashing Pumpkins](https://www.last.fm/music/The+Smashing+Pumpkins)              | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Asobi Seksu](https://www.last.fm/music/Asobi+Seksu)                                  | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Foo Fighters](https://www.last.fm/music/Foo+Fighters)                                | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Green Day](https://www.last.fm/music/Green+Day)                                      | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Nirvana](https://www.last.fm/music/Nirvana)                                          | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [The Offspring](https://www.last.fm/music/The+Offspring)                             | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 15-12-2021 02:27:02 UTC
+🚀 **Última atualização:** 16-12-2021 02:27:01 UTC
