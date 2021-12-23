@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                                        🎧 Artistas da semana                                        |                      📚 Últimos livros lidos                      |
-|-----------------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [OGRE YOU ASSHOLE](https://www.last.fm/music/OGRE+YOU+ASSHOLE)                                   | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [宇宙ネコ子](https://www.last.fm/music/%E5%AE%87%E5%AE%99%E3%83%8D%E3%82%B3%E5%AD%90)            | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Asobi Seksu](https://www.last.fm/music/Asobi+Seksu)                                             | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [溶けない名前](https://www.last.fm/music/%E6%BA%B6%E3%81%91%E3%81%AA%E3%81%84%E5%90%8D%E5%89%8D) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Foo Fighters](https://www.last.fm/music/Foo+Fighters)                                           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Hako Yamasaki](https://www.last.fm/music/Hako+Yamasaki)                                         | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [KinokoTeikoku](https://www.last.fm/music/KinokoTeikoku)                                         | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers)                         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [blink-182](https://www.last.fm/music/blink-182)                                                 | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Blur](https://www.last.fm/music/Blur)                                                          | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                              🎧 Artistas da semana                              |                      📚 Últimos livros lidos                      |
+|---------------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Avril Lavigne](https://www.last.fm/music/Avril+Lavigne)                     | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Feist](https://www.last.fm/music/Feist)                                     | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [KAORU(CV.Yukari Tamura)](https://www.last.fm/music/KAORU(CV.Yukari+Tamura)) | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Brian the Sun](https://www.last.fm/music/Brian+the+Sun)                     | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Linkin Park](https://www.last.fm/music/Linkin+Park)                         | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [SlackCircus](https://www.last.fm/music/SlackCircus)                         | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [a-ha](https://www.last.fm/music/a-ha)                                       | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Akon](https://www.last.fm/music/Akon)                                       | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Alicia Keys](https://www.last.fm/music/Alicia+Keys)                         | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Bag Raiders](https://www.last.fm/music/Bag+Raiders)                        | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 19-12-2021 02:27:02 UTC
+🚀 **Última atualização:** 23-12-2021 02:27:02 UTC
