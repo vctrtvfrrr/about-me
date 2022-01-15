@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                                   🎧 Artistas da semana                                   |                      📚 Últimos livros lidos                      |
-|-------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [きのこ帝国](https://www.last.fm/music/%E3%81%8D%E3%81%AE%E3%81%93%E5%B8%9D%E5%9B%BD)  | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [The Cranberries](https://www.last.fm/music/The+Cranberries)                           | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [MASS OF THE FERMENTING DREGS](https://www.last.fm/music/MASS+OF+THE+FERMENTING+DREGS) | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Aimyon](https://www.last.fm/music/Aimyon)                                             | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Art Popular](https://www.last.fm/music/Art+Popular)                                   | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Every Little Thing](https://www.last.fm/music/Every+Little+Thing)                     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Só Pra Contrariar](https://www.last.fm/music/S%C3%B3+Pra+Contrariar)                  | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Exaltasamba](https://www.last.fm/music/Exaltasamba)                                   | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Grupo Raça](https://www.last.fm/music/Grupo+Ra%C3%A7a)                                | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [スピッツ](https://www.last.fm/music/%E3%82%B9%E3%83%94%E3%83%83%E3%83%84)            | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                                  🎧 Artistas da semana                                   |                      📚 Últimos livros lidos                      |
+|------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [ムック](https://www.last.fm/music/%E3%83%A0%E3%83%83%E3%82%AF)                       | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [きのこ帝国](https://www.last.fm/music/%E3%81%8D%E3%81%AE%E3%81%93%E5%B8%9D%E5%9B%BD) | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Art Popular](https://www.last.fm/music/Art+Popular)                                  | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Só Pra Contrariar](https://www.last.fm/music/S%C3%B3+Pra+Contrariar)                 | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Exaltasamba](https://www.last.fm/music/Exaltasamba)                                  | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Grupo Raça](https://www.last.fm/music/Grupo+Ra%C3%A7a)                               | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Katinguelê](https://www.last.fm/music/Katinguel%C3%AA)                               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Raça Negra](https://www.last.fm/music/Ra%C3%A7a+Negra)                               | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Cor Da Pele](https://www.last.fm/music/Cor+Da+Pele)                                  | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Da Melhor Qualidade](https://www.last.fm/music/Da+Melhor+Qualidade)                 | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 13-01-2022 02:27:02 UTC
+🚀 **Última atualização:** 15-01-2022 02:27:02 UTC
