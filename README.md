@@ -35,18 +35,18 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                                  🎧 Artistas da semana                                   |                      📚 Últimos livros lidos                      |
 |------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Ludwig van Beethoven](https://www.last.fm/music/Ludwig+van+Beethoven)                | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [林原めぐみ](https://www.last.fm/music/%E6%9E%97%E5%8E%9F%E3%82%81%E3%81%90%E3%81%BF) | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Penguin Cafe Orchestra](https://www.last.fm/music/Penguin+Cafe+Orchestra)            | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Village People](https://www.last.fm/music/Village+People)                            | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Shibayan](https://www.last.fm/music/Shibayan)                                        | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Johann Sebastian Bach](https://www.last.fm/music/Johann+Sebastian+Bach)              | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Johannes Brahms](https://www.last.fm/music/Johannes+Brahms)                          | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Maurice Ravel](https://www.last.fm/music/Maurice+Ravel)                              | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Robert Schumann](https://www.last.fm/music/Robert+Schumann)                          | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Daft Punk](https://www.last.fm/music/Daft+Punk)                                     | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 1º [林原めぐみ](https://www.last.fm/music/%E6%9E%97%E5%8E%9F%E3%82%81%E3%81%90%E3%81%BF) | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Elliott Smith](https://www.last.fm/music/Elliott+Smith)                              | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Shibayan](https://www.last.fm/music/Shibayan)                                        | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Tiago Iorc](https://www.last.fm/music/Tiago+Iorc)                                    | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Village People](https://www.last.fm/music/Village+People)                            | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Penguin Cafe Orchestra](https://www.last.fm/music/Penguin+Cafe+Orchestra)            | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [きのこ帝国](https://www.last.fm/music/%E3%81%8D%E3%81%AE%E3%81%93%E5%B8%9D%E5%9B%BD) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Ludwig van Beethoven](https://www.last.fm/music/Ludwig+van+Beethoven)                | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Superfly](https://www.last.fm/music/Superfly)                                        | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Maurice Ravel](https://www.last.fm/music/Maurice+Ravel)                             | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 26-02-2022 02:27:01 UTC
+🚀 **Última atualização:** 01-03-2022 02:27:02 UTC
