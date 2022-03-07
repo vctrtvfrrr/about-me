@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                                  🎧 Artistas da semana                                   |                      📚 Últimos livros lidos                      |
-|------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [林原めぐみ](https://www.last.fm/music/%E6%9E%97%E5%8E%9F%E3%82%81%E3%81%90%E3%81%BF) | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Elliott Smith](https://www.last.fm/music/Elliott+Smith)                              | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Shibayan](https://www.last.fm/music/Shibayan)                                        | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Tiago Iorc](https://www.last.fm/music/Tiago+Iorc)                                    | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Village People](https://www.last.fm/music/Village+People)                            | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Penguin Cafe Orchestra](https://www.last.fm/music/Penguin+Cafe+Orchestra)            | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [きのこ帝国](https://www.last.fm/music/%E3%81%8D%E3%81%AE%E3%81%93%E5%B8%9D%E5%9B%BD) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Ludwig van Beethoven](https://www.last.fm/music/Ludwig+van+Beethoven)                | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Superfly](https://www.last.fm/music/Superfly)                                        | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Maurice Ravel](https://www.last.fm/music/Maurice+Ravel)                             | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                                             🎧 Artistas da semana                                              |                      📚 Últimos livros lidos                      |
+|----------------------------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Tiago Iorc](https://www.last.fm/music/Tiago+Iorc)                                                          | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Elliott Smith](https://www.last.fm/music/Elliott+Smith)                                                    | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [きのこ帝国](https://www.last.fm/music/%E3%81%8D%E3%81%AE%E3%81%93%E5%B8%9D%E5%9B%BD)                       | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [スネオヘアー](https://www.last.fm/music/%E3%82%B9%E3%83%8D%E3%82%AA%E3%83%98%E3%82%A2%E3%83%BC)            | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Round Table featuring Nino](https://www.last.fm/music/Round+Table+featuring+Nino)                          | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [大塚愛](https://www.last.fm/music/%E5%A4%A7%E5%A1%9A%E6%84%9B)                                             | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [スキマスイッチ](https://www.last.fm/music/%E3%82%B9%E3%82%AD%E3%83%9E%E3%82%B9%E3%82%A4%E3%83%83%E3%83%81) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [CQ](https://www.last.fm/music/CQ)                                                                          | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [ヒグチアイ](https://www.last.fm/music/%E3%83%92%E3%82%B0%E3%83%81%E3%82%A2%E3%82%A4)                       | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [YUI](https://www.last.fm/music/YUI)                                                                       | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 01-03-2022 02:27:02 UTC
+🚀 **Última atualização:** 07-03-2022 02:27:02 UTC
