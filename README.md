@@ -37,16 +37,16 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |-----------------------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Sixpence None the Richer](https://www.last.fm/music/Sixpence+None+the+Richer) | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [The Cranberries](https://www.last.fm/music/The+Cranberries)                   | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [30 Seconds to Mars](https://www.last.fm/music/30+Seconds+to+Mars)             | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                             | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Só Pra Contrariar](https://www.last.fm/music/S%C3%B3+Pra+Contrariar)          | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Eminem](https://www.last.fm/music/Eminem)                                     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Five Finger Death Punch](https://www.last.fm/music/Five+Finger+Death+Punch)   | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 3º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                             | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Só Pra Contrariar](https://www.last.fm/music/S%C3%B3+Pra+Contrariar)          | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Eminem](https://www.last.fm/music/Eminem)                                     | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Five Finger Death Punch](https://www.last.fm/music/Five+Finger+Death+Punch)   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Avenged Sevenfold](https://www.last.fm/music/Avenged+Sevenfold)               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 | 8º [Linkin Park](https://www.last.fm/music/Linkin+Park)                           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Avenged Sevenfold](https://www.last.fm/music/Avenged+Sevenfold)               | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Green Day](https://www.last.fm/music/Green+Day)                              | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 9º [Nelly Furtado](https://www.last.fm/music/Nelly+Furtado)                       | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Nickelback](https://www.last.fm/music/Nickelback)                            | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 15-03-2022 02:27:01 UTC
+🚀 **Última atualização:** 16-03-2022 02:27:02 UTC
