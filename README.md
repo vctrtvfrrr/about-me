@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                               🎧 Artistas da semana                               |                      📚 Últimos livros lidos                      |
-|-----------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Green Day](https://www.last.fm/music/Green+Day)                               | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Sixpence None the Richer](https://www.last.fm/music/Sixpence+None+the+Richer) | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [The Cranberries](https://www.last.fm/music/The+Cranberries)                   | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                             | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Só Pra Contrariar](https://www.last.fm/music/S%C3%B3+Pra+Contrariar)          | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Avril Lavigne](https://www.last.fm/music/Avril+Lavigne)                       | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Britney Spears](https://www.last.fm/music/Britney+Spears)                     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [David Guetta](https://www.last.fm/music/David+Guetta)                         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Exaltasamba](https://www.last.fm/music/Exaltasamba)                           | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Linkin Park](https://www.last.fm/music/Linkin+Park)                          | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                                   🎧 Artistas da semana                                   |                      📚 Últimos livros lidos                      |
+|-------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Green Day](https://www.last.fm/music/Green+Day)                                       | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Rhapsody](https://www.last.fm/music/Rhapsody)                                         | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [MASS OF THE FERMENTING DREGS](https://www.last.fm/music/MASS+OF+THE+FERMENTING+DREGS) | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Within Temptation](https://www.last.fm/music/Within+Temptation)                       | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [The Cranberries](https://www.last.fm/music/The+Cranberries)                           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Racionais MC's](https://www.last.fm/music/Racionais+MC%27s)                           | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Só Pra Contrariar](https://www.last.fm/music/S%C3%B3+Pra+Contrariar)                  | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Avril Lavigne](https://www.last.fm/music/Avril+Lavigne)                               | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Britney Spears](https://www.last.fm/music/Britney+Spears)                             | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [David Guetta](https://www.last.fm/music/David+Guetta)                                | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 17-03-2022 02:27:02 UTC
+🚀 **Última atualização:** 19-03-2022 02:27:01 UTC
