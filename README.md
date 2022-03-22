@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                                   🎧 Artistas da semana                                   |                      📚 Últimos livros lidos                      |
-|-------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Green Day](https://www.last.fm/music/Green+Day)                                       | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Rhapsody](https://www.last.fm/music/Rhapsody)                                         | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [MASS OF THE FERMENTING DREGS](https://www.last.fm/music/MASS+OF+THE+FERMENTING+DREGS) | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Within Temptation](https://www.last.fm/music/Within+Temptation)                       | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [The Cranberries](https://www.last.fm/music/The+Cranberries)                           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Racionais MC's](https://www.last.fm/music/Racionais+MC%27s)                           | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Só Pra Contrariar](https://www.last.fm/music/S%C3%B3+Pra+Contrariar)                  | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Avril Lavigne](https://www.last.fm/music/Avril+Lavigne)                               | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Britney Spears](https://www.last.fm/music/Britney+Spears)                             | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [David Guetta](https://www.last.fm/music/David+Guetta)                                | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                                                        🎧 Artistas da semana                                                         |                      📚 Últimos livros lidos                      |
+|--------------------------------------------------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Green Day](https://www.last.fm/music/Green+Day)                                                                                  | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Elliott Smith](https://www.last.fm/music/Elliott+Smith)                                                                          | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Rhapsody](https://www.last.fm/music/Rhapsody)                                                                                    | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [MASS OF THE FERMENTING DREGS](https://www.last.fm/music/MASS+OF+THE+FERMENTING+DREGS)                                            | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Within Temptation](https://www.last.fm/music/Within+Temptation)                                                                  | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [ポルノグラフィティ](https://www.last.fm/music/%E3%83%9D%E3%83%AB%E3%83%8E%E3%82%B0%E3%83%A9%E3%83%95%E3%82%A3%E3%83%86%E3%82%A3) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Racionais MC's](https://www.last.fm/music/Racionais+MC%27s)                                                                      | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [スネオヘアー](https://www.last.fm/music/%E3%82%B9%E3%83%8D%E3%82%AA%E3%83%98%E3%82%A2%E3%83%BC)                                  | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Akon](https://www.last.fm/music/Akon)                                                                                            | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Avril Lavigne](https://www.last.fm/music/Avril+Lavigne)                                                                         | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 21-03-2022 02:27:02 UTC
+🚀 **Última atualização:** 22-03-2022 02:27:02 UTC
