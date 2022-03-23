@@ -43,10 +43,10 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 6º [ポルノグラフィティ](https://www.last.fm/music/%E3%83%9D%E3%83%AB%E3%83%8E%E3%82%B0%E3%83%A9%E3%83%95%E3%82%A3%E3%83%86%E3%82%A3) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 | 7º [Racionais MC's](https://www.last.fm/music/Racionais+MC%27s)                                                                      | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 | 8º [スネオヘアー](https://www.last.fm/music/%E3%82%B9%E3%83%8D%E3%82%AA%E3%83%98%E3%82%A2%E3%83%BC)                                  | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Akon](https://www.last.fm/music/Akon)                                                                                            | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Avril Lavigne](https://www.last.fm/music/Avril+Lavigne)                                                                         | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 9º [Blind Guardian](https://www.last.fm/music/Blind+Guardian)                                                                        | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [DragonForce](https://www.last.fm/music/DragonForce)                                                                             | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 22-03-2022 02:27:02 UTC
+🚀 **Última atualização:** 23-03-2022 02:27:02 UTC
