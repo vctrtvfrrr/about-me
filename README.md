@@ -38,15 +38,15 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 1º [Elliott Smith](https://www.last.fm/music/Elliott+Smith)                                                                          | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [Blind Guardian](https://www.last.fm/music/Blind+Guardian)                                                                        | A Arte da Guerra	–	_Sun Tzu_                                        |
 | 3º [チャットモンチー](https://www.last.fm/music/%E3%83%81%E3%83%A3%E3%83%83%E3%83%88%E3%83%A2%E3%83%B3%E3%83%81%E3%83%BC)            | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [ポルノグラフィティ](https://www.last.fm/music/%E3%83%9D%E3%83%AB%E3%83%8E%E3%82%B0%E3%83%A9%E3%83%95%E3%82%A3%E3%83%86%E3%82%A3) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [中川翔子](https://www.last.fm/music/%E4%B8%AD%E5%B7%9D%E7%BF%94%E5%AD%90)                                                        | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Base Ball Bear](https://www.last.fm/music/Base+Ball+Bear)                                                                        | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [スネオヘアー](https://www.last.fm/music/%E3%82%B9%E3%83%8D%E3%82%AA%E3%83%98%E3%82%A2%E3%83%BC)                                  | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [堀江由衣](https://www.last.fm/music/%E5%A0%80%E6%B1%9F%E7%94%B1%E8%A1%A3)                                                        | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [David Guetta](https://www.last.fm/music/David+Guetta)                                                                            | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [DragonForce](https://www.last.fm/music/DragonForce)                                                                             | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 4º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                                                                                | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [ポルノグラフィティ](https://www.last.fm/music/%E3%83%9D%E3%83%AB%E3%83%8E%E3%82%B0%E3%83%A9%E3%83%95%E3%82%A3%E3%83%86%E3%82%A3) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [中川翔子](https://www.last.fm/music/%E4%B8%AD%E5%B7%9D%E7%BF%94%E5%AD%90)                                                        | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Base Ball Bear](https://www.last.fm/music/Base+Ball+Bear)                                                                        | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [スネオヘアー](https://www.last.fm/music/%E3%82%B9%E3%83%8D%E3%82%AA%E3%83%98%E3%82%A2%E3%83%BC)                                  | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [堀江由衣](https://www.last.fm/music/%E5%A0%80%E6%B1%9F%E7%94%B1%E8%A1%A3)                                                        | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [David Guetta](https://www.last.fm/music/David+Guetta)                                                                           | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 27-03-2022 02:27:01 UTC
+🚀 **Última atualização:** 28-03-2022 02:27:02 UTC
