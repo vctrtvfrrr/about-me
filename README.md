@@ -35,18 +35,18 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                             🎧 Artistas da semana                             |                      📚 Últimos livros lidos                      |
 |-------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [大塚愛](https://www.last.fm/music/%E5%A4%A7%E5%A1%9A%E6%84%9B)            | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 1º [Tom Zé](https://www.last.fm/music/Tom+Z%C3%A9)                            | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [Radiohead](https://www.last.fm/music/Radiohead)                           | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Armahda](https://www.last.fm/music/Armahda)                               | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Blur](https://www.last.fm/music/Blur)                                     | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Papa Roach](https://www.last.fm/music/Papa+Roach)                         | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [さユり](https://www.last.fm/music/%E3%81%95%E3%83%A6%E3%82%8A)            | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Ace of Base](https://www.last.fm/music/Ace+of+Base)                       | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Ney Matogrosso](https://www.last.fm/music/Ney+Matogrosso)                 | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [福原美穂](https://www.last.fm/music/%E7%A6%8F%E5%8E%9F%E7%BE%8E%E7%A9%82) | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Buffalo Springfield](https://www.last.fm/music/Buffalo+Springfield)      | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 3º [Supertramp](https://www.last.fm/music/Supertramp)                         | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [大塚愛](https://www.last.fm/music/%E5%A4%A7%E5%A1%9A%E6%84%9B)            | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Armahda](https://www.last.fm/music/Armahda)                               | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Ney Matogrosso](https://www.last.fm/music/Ney+Matogrosso)                 | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [福原美穂](https://www.last.fm/music/%E7%A6%8F%E5%8E%9F%E7%BE%8E%E7%A9%82) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Rush](https://www.last.fm/music/Rush)                                     | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Blur](https://www.last.fm/music/Blur)                                     | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Jorge Ben](https://www.last.fm/music/Jorge+Ben)                          | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 07-04-2022 02:27:01 UTC
+🚀 **Última atualização:** 11-04-2022 02:27:02 UTC
