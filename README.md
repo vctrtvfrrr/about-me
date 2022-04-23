@@ -35,18 +35,18 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                                             🎧 Artistas da semana                                              |                      📚 Últimos livros lidos                      |
 |----------------------------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Evanescence](https://www.last.fm/music/Evanescence)                                                        | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [ASIAN KUNG-FU GENERATION](https://www.last.fm/music/ASIAN+KUNG-FU+GENERATION)                              | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [スキマスイッチ](https://www.last.fm/music/%E3%82%B9%E3%82%AD%E3%83%9E%E3%82%B9%E3%82%A4%E3%83%83%E3%83%81) | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 1º [Luiz Gonzaga](https://www.last.fm/music/Luiz+Gonzaga)                                                      | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Evanescence](https://www.last.fm/music/Evanescence)                                                        | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [ASIAN KUNG-FU GENERATION](https://www.last.fm/music/ASIAN+KUNG-FU+GENERATION)                              | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [blink-182](https://www.last.fm/music/blink-182)                                                            | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [t.A.T.u.](https://www.last.fm/music/t.A.T.u.)                                                              | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [宇宙ネコ子](https://www.last.fm/music/%E5%AE%87%E5%AE%99%E3%83%8D%E3%82%B3%E5%AD%90)                       | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 6º [スネオヘアー](https://www.last.fm/music/%E3%82%B9%E3%83%8D%E3%82%AA%E3%83%98%E3%82%A2%E3%83%BC)            | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 | 7º [Base Ball Bear](https://www.last.fm/music/Base+Ball+Bear)                                                  | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [いきものがかり](https://www.last.fm/music/%E3%81%84%E3%81%8D%E3%82%82%E3%81%AE%E3%81%8C%E3%81%8B%E3%82%8A) | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [林原めぐみ](https://www.last.fm/music/%E6%9E%97%E5%8E%9F%E3%82%81%E3%81%90%E3%81%BF)                       | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Eric Clapton](https://www.last.fm/music/Eric+Clapton)                                                     | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 8º [Eric Clapton](https://www.last.fm/music/Eric+Clapton)                                                      | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [スキマスイッチ](https://www.last.fm/music/%E3%82%B9%E3%82%AD%E3%83%9E%E3%82%B9%E3%82%A4%E3%83%83%E3%83%81) | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [林原めぐみ](https://www.last.fm/music/%E6%9E%97%E5%8E%9F%E3%82%81%E3%81%90%E3%81%BF)                      | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 22-04-2022 02:27:03 UTC
+🚀 **Última atualização:** 23-04-2022 02:27:01 UTC
