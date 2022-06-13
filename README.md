@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                              🎧 Artistas da semana                              |                      📚 Últimos livros lidos                      |
-|---------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Catedral](https://www.last.fm/music/Catedral)                               | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [U2](https://www.last.fm/music/U2)                                           | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [O Rappa](https://www.last.fm/music/O+Rappa)                                 | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [30 Seconds to Mars](https://www.last.fm/music/30+Seconds+to+Mars)           | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Os Paralamas Do Sucesso](https://www.last.fm/music/Os+Paralamas+Do+Sucesso) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Edu Lobo](https://www.last.fm/music/Edu+Lobo)                               | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Palavrantiga](https://www.last.fm/music/Palavrantiga)                       | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Claude Debussy](https://www.last.fm/music/Claude+Debussy)                   | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [ABBA](https://www.last.fm/music/ABBA)                                       | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Depeche Mode](https://www.last.fm/music/Depeche+Mode)                      | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                              🎧 Artistas da semana                               |                      📚 Últimos livros lidos                      |
+|----------------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Josh Garrels](https://www.last.fm/music/Josh+Garrels)                        | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Jason Mraz](https://www.last.fm/music/Jason+Mraz)                            | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [O Rappa](https://www.last.fm/music/O+Rappa)                                  | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [John Mayer](https://www.last.fm/music/John+Mayer)                            | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Kid Abelha](https://www.last.fm/music/Kid+Abelha)                            | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [The Fray](https://www.last.fm/music/The+Fray)                                | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Claude Debussy](https://www.last.fm/music/Claude+Debussy)                    | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Johann Sebastian Bach](https://www.last.fm/music/Johann+Sebastian+Bach)      | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Taylor Swift](https://www.last.fm/music/Taylor+Swift)                        | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Os Paralamas Do Sucesso](https://www.last.fm/music/Os+Paralamas+Do+Sucesso) | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 07-06-2022 02:27:01 UTC
+🚀 **Última atualização:** 13-06-2022 02:27:01 UTC
