@@ -36,8 +36,8 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |                            🎧 Artistas da semana                             |                      📚 Últimos livros lidos                      |
 |------------------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Jason Mraz](https://www.last.fm/music/Jason+Mraz)                        | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Josh Garrels](https://www.last.fm/music/Josh+Garrels)                    | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Linkin Park](https://www.last.fm/music/Linkin+Park)                      | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 2º [Linkin Park](https://www.last.fm/music/Linkin+Park)                      | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Zé Ramalho](https://www.last.fm/music/Z%C3%A9+Ramalho)                   | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [John Mayer](https://www.last.fm/music/John+Mayer)                        | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [The Fray](https://www.last.fm/music/The+Fray)                            | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [Nickelback](https://www.last.fm/music/Nickelback)                        | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
@@ -49,4 +49,4 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ---
 
-🚀 **Última atualização:** 15-06-2022 02:27:02 UTC
+🚀 **Última atualização:** 16-06-2022 02:27:01 UTC
