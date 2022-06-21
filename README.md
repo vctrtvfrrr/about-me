@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                            🎧 Artistas da semana                            |                      📚 Últimos livros lidos                      |
-|-----------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Linkin Park](https://www.last.fm/music/Linkin+Park)                     | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Zé Ramalho](https://www.last.fm/music/Z%C3%A9+Ramalho)                  | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [John Mayer](https://www.last.fm/music/John+Mayer)                       | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [The Fray](https://www.last.fm/music/The+Fray)                           | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Nickelback](https://www.last.fm/music/Nickelback)                       | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Hey](https://www.last.fm/music/Hey)                                     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Taylor Swift](https://www.last.fm/music/Taylor+Swift)                   | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Claude Debussy](https://www.last.fm/music/Claude+Debussy)               | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Johann Sebastian Bach](https://www.last.fm/music/Johann+Sebastian+Bach) | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Alceu Valença](https://www.last.fm/music/Alceu+Valen%C3%A7a)           | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                                             🎧 Artistas da semana                                              |                      📚 Últimos livros lidos                      |
+|----------------------------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                                                          | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [John Mayer](https://www.last.fm/music/John+Mayer)                                                          | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Zé Ramalho](https://www.last.fm/music/Z%C3%A9+Ramalho)                                                     | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Linkin Park](https://www.last.fm/music/Linkin+Park)                                                        | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Dolores O'Riordan](https://www.last.fm/music/Dolores+O%27Riordan)                                          | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Alceu Valença](https://www.last.fm/music/Alceu+Valen%C3%A7a)                                               | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Erik Satie](https://www.last.fm/music/Erik+Satie)                                                          | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Claude Debussy](https://www.last.fm/music/Claude+Debussy)                                                  | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [スキマスイッチ](https://www.last.fm/music/%E3%82%B9%E3%82%AD%E3%83%9E%E3%82%B9%E3%82%A4%E3%83%83%E3%83%81) | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Hey](https://www.last.fm/music/Hey)                                                                       | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 17-06-2022 02:27:01 UTC
+🚀 **Última atualização:** 21-06-2022 02:27:01 UTC
