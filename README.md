@@ -11,7 +11,7 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 ## Informações
 
 - **Nome:** Victor Otávio Ferreira
-- **Idade:** 29 anos
+- **Idade:** 30 anos
 - **Localização:** Curitiba/PR
 
 [![](https://img.shields.io/badge/LinkedIn-victorotavio-blue)](https://www.linkedin.com/in/victorotavio/) [![](https://img.shields.io/badge/Twitter-@vctrtvfrrr-blue)](https://twitter.com/vctrtvfrrr)  
@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                                                   🎧 Artistas da semana                                                   |                      📚 Últimos livros lidos                      |
-|---------------------------------------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Gesu No Kiwami Otome](https://www.last.fm/music/Gesu+No+Kiwami+Otome)                                                 | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Regal Lily](https://www.last.fm/music/Regal+Lily)                                                                     | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [チャットモンチー](https://www.last.fm/music/%E3%83%81%E3%83%A3%E3%83%83%E3%83%88%E3%83%A2%E3%83%B3%E3%83%81%E3%83%BC) | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [イツエ](https://www.last.fm/music/%E3%82%A4%E3%83%84%E3%82%A8)                                                        | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [For Tracy Hyde](https://www.last.fm/music/For+Tracy+Hyde)                                                             | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [mitsume](https://www.last.fm/music/mitsume)                                                                           | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [スキマスイッチ](https://www.last.fm/music/%E3%82%B9%E3%82%AD%E3%83%9E%E3%82%B9%E3%82%A4%E3%83%83%E3%83%81)            | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Kaiser Chiefs](https://www.last.fm/music/Kaiser+Chiefs)                                                               | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [The Strokes](https://www.last.fm/music/The+Strokes)                                                                   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [YUI](https://www.last.fm/music/YUI)                                                                                  | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                             🎧 Artistas da semana                             |                      📚 Últimos livros lidos                      |
+|-------------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [The Strokes](https://www.last.fm/music/The+Strokes)                       | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Kaiser Chiefs](https://www.last.fm/music/Kaiser+Chiefs)                   | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Muse](https://www.last.fm/music/Muse)                                     | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Radiohead](https://www.last.fm/music/Radiohead)                           | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [中川翔子](https://www.last.fm/music/%E4%B8%AD%E5%B7%9D%E7%BF%94%E5%AD%90) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Band of Horses](https://www.last.fm/music/Band+of+Horses)                 | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Coldplay](https://www.last.fm/music/Coldplay)                             | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [John Mayer](https://www.last.fm/music/John+Mayer)                         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Franz Ferdinand](https://www.last.fm/music/Franz+Ferdinand)               | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Jason Mraz](https://www.last.fm/music/Jason+Mraz)                        | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 31-07-2022 02:27:01 UTC
+🚀 **Última atualização:** 05-08-2022 02:27:01 UTC
