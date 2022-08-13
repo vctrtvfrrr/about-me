@@ -36,17 +36,17 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |                                   🎧 Artistas da semana                                   |                      📚 Últimos livros lidos                      |
 |-------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [David Gilmour](https://www.last.fm/music/David+Gilmour)                               | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                                     | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Led Zeppelin](https://www.last.fm/music/Led+Zeppelin)                                 | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Jethro Tull](https://www.last.fm/music/Jethro+Tull)                                   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Steven Wilson](https://www.last.fm/music/Steven+Wilson)                               | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Yes](https://www.last.fm/music/Yes)                                                   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [MASS OF THE FERMENTING DREGS](https://www.last.fm/music/MASS+OF+THE+FERMENTING+DREGS) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Aerosmith](https://www.last.fm/music/Aerosmith)                                       | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Cream](https://www.last.fm/music/Cream)                                               | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Hako Yamasaki](https://www.last.fm/music/Hako+Yamasaki)                              | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 2º [Jethro Tull](https://www.last.fm/music/Jethro+Tull)                                   | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                                     | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Led Zeppelin](https://www.last.fm/music/Led+Zeppelin)                                 | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [MASS OF THE FERMENTING DREGS](https://www.last.fm/music/MASS+OF+THE+FERMENTING+DREGS) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [OGRE YOU ASSHOLE](https://www.last.fm/music/OGRE+YOU+ASSHOLE)                         | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Hako Yamasaki](https://www.last.fm/music/Hako+Yamasaki)                               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [KinokoTeikoku](https://www.last.fm/music/KinokoTeikoku)                               | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Lamp](https://www.last.fm/music/Lamp)                                                 | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Steven Wilson](https://www.last.fm/music/Steven+Wilson)                              | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 11-08-2022 02:27:01 UTC
+🚀 **Última atualização:** 13-08-2022 02:27:02 UTC
