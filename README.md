@@ -38,15 +38,15 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 1º [David Gilmour](https://www.last.fm/music/David+Gilmour)                               | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [Jethro Tull](https://www.last.fm/music/Jethro+Tull)                                   | A Arte da Guerra	–	_Sun Tzu_                                        |
 | 3º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                                     | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Led Zeppelin](https://www.last.fm/music/Led+Zeppelin)                                 | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [MASS OF THE FERMENTING DREGS](https://www.last.fm/music/MASS+OF+THE+FERMENTING+DREGS) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [OGRE YOU ASSHOLE](https://www.last.fm/music/OGRE+YOU+ASSHOLE)                         | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Hako Yamasaki](https://www.last.fm/music/Hako+Yamasaki)                               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [KinokoTeikoku](https://www.last.fm/music/KinokoTeikoku)                               | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Lamp](https://www.last.fm/music/Lamp)                                                 | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Steven Wilson](https://www.last.fm/music/Steven+Wilson)                              | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 4º [宇宙ネコ子](https://www.last.fm/music/%E5%AE%87%E5%AE%99%E3%83%8D%E3%82%B3%E5%AD%90)  | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Hako Yamasaki](https://www.last.fm/music/Hako+Yamasaki)                               | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Led Zeppelin](https://www.last.fm/music/Led+Zeppelin)                                 | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [MASS OF THE FERMENTING DREGS](https://www.last.fm/music/MASS+OF+THE+FERMENTING+DREGS) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [OGRE YOU ASSHOLE](https://www.last.fm/music/OGRE+YOU+ASSHOLE)                         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [KinokoTeikoku](https://www.last.fm/music/KinokoTeikoku)                               | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [L'Arc~en~Ciel](https://www.last.fm/music/L%27Arc~en~Ciel)                            | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 15-08-2022 02:27:01 UTC
+🚀 **Última atualização:** 16-08-2022 02:27:01 UTC
