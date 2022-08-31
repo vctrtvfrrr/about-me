@@ -35,18 +35,18 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                                                   🎧 Artistas da semana                                                   |                      📚 Últimos livros lidos                      |
 |---------------------------------------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [DIR EN GREY](https://www.last.fm/music/DIR+EN+GREY)                                                                   | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [L'Arc~en~Ciel](https://www.last.fm/music/L%27Arc~en~Ciel)                                                             | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [ORANGE RANGE](https://www.last.fm/music/ORANGE+RANGE)                                                                 | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [The Pillows](https://www.last.fm/music/The+Pillows)                                                                   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [MASS OF THE FERMENTING DREGS](https://www.last.fm/music/MASS+OF+THE+FERMENTING+DREGS)                                 | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [チャットモンチー](https://www.last.fm/music/%E3%83%81%E3%83%A3%E3%83%83%E3%83%88%E3%83%A2%E3%83%B3%E3%83%81%E3%83%BC) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [坂本龍一](https://www.last.fm/music/%E5%9D%82%E6%9C%AC%E9%BE%8D%E4%B8%80)                                             | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [宇多田ヒカル](https://www.last.fm/music/%E5%AE%87%E5%A4%9A%E7%94%B0%E3%83%92%E3%82%AB%E3%83%AB)                       | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 1º [Gabriel O Pensador](https://www.last.fm/music/Gabriel+O+Pensador)                                                     | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [DIR EN GREY](https://www.last.fm/music/DIR+EN+GREY)                                                                   | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [MASS OF THE FERMENTING DREGS](https://www.last.fm/music/MASS+OF+THE+FERMENTING+DREGS)                                 | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [チャットモンチー](https://www.last.fm/music/%E3%83%81%E3%83%A3%E3%83%83%E3%83%88%E3%83%A2%E3%83%B3%E3%83%81%E3%83%BC) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [坂本龍一](https://www.last.fm/music/%E5%9D%82%E6%9C%AC%E9%BE%8D%E4%B8%80)                                             | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Criolo](https://www.last.fm/music/Criolo)                                                                             | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [O Rappa](https://www.last.fm/music/O+Rappa)                                                                           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Pato Fu](https://www.last.fm/music/Pato+Fu)                                                                           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 | 9º [きのこ帝国](https://www.last.fm/music/%E3%81%8D%E3%81%AE%E3%81%93%E5%B8%9D%E5%9B%BD)                                  | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 | 10º [Gesu No Kiwami Otome](https://www.last.fm/music/Gesu+No+Kiwami+Otome)                                                | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 29-08-2022 12:33:46 UTC
+🚀 **Última atualização:** 31-08-2022 02:27:02 UTC
