@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                                                   🎧 Artistas da semana                                                   |                      📚 Últimos livros lidos                      |
-|---------------------------------------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Gabriel O Pensador](https://www.last.fm/music/Gabriel+O+Pensador)                                                     | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [DIR EN GREY](https://www.last.fm/music/DIR+EN+GREY)                                                                   | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [MASS OF THE FERMENTING DREGS](https://www.last.fm/music/MASS+OF+THE+FERMENTING+DREGS)                                 | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [チャットモンチー](https://www.last.fm/music/%E3%83%81%E3%83%A3%E3%83%83%E3%83%88%E3%83%A2%E3%83%B3%E3%83%81%E3%83%BC) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [坂本龍一](https://www.last.fm/music/%E5%9D%82%E6%9C%AC%E9%BE%8D%E4%B8%80)                                             | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Criolo](https://www.last.fm/music/Criolo)                                                                             | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [O Rappa](https://www.last.fm/music/O+Rappa)                                                                           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Pato Fu](https://www.last.fm/music/Pato+Fu)                                                                           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [きのこ帝国](https://www.last.fm/music/%E3%81%8D%E3%81%AE%E3%81%93%E5%B8%9D%E5%9B%BD)                                  | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Gesu No Kiwami Otome](https://www.last.fm/music/Gesu+No+Kiwami+Otome)                                                | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                              🎧 Artistas da semana                              |                      📚 Últimos livros lidos                      |
+|---------------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [The Cranberries](https://www.last.fm/music/The+Cranberries)                 | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Gabriel O Pensador](https://www.last.fm/music/Gabriel+O+Pensador)           | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Mamonas Assassinas](https://www.last.fm/music/Mamonas+Assassinas)           | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Os Paralamas Do Sucesso](https://www.last.fm/music/Os+Paralamas+Do+Sucesso) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Pato Fu](https://www.last.fm/music/Pato+Fu)                                 | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Criolo](https://www.last.fm/music/Criolo)                                   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Lamp](https://www.last.fm/music/Lamp)                                       | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [O Rappa](https://www.last.fm/music/O+Rappa)                                 | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Bee Gees](https://www.last.fm/music/Bee+Gees)                               | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [CPM 22](https://www.last.fm/music/CPM+22)                                  | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 31-08-2022 02:27:02 UTC
+🚀 **Última atualização:** 05-09-2022 02:27:01 UTC
