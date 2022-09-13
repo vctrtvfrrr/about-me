@@ -35,18 +35,18 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                            🎧 Artistas da semana                            |                      📚 Últimos livros lidos                      |
 |-----------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Anberlin](https://www.last.fm/music/Anberlin)                           | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Dire Straits](https://www.last.fm/music/Dire+Straits)                   | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 1º [Raul Seixas](https://www.last.fm/music/Raul+Seixas)                     | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Anberlin](https://www.last.fm/music/Anberlin)                           | A Arte da Guerra	–	_Sun Tzu_                                        |
 | 3º [The Smashing Pumpkins](https://www.last.fm/music/The+Smashing+Pumpkins) | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Anathema](https://www.last.fm/music/Anathema)                           | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Balmorhea](https://www.last.fm/music/Balmorhea)                         | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Wizet](https://www.last.fm/music/Wizet)                                 | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [L'Arc~en~Ciel](https://www.last.fm/music/L%27Arc~en~Ciel)               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Muse](https://www.last.fm/music/Muse)                                   | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Radiohead](https://www.last.fm/music/Radiohead)                         | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 5º [Wizet](https://www.last.fm/music/Wizet)                                 | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [L'Arc~en~Ciel](https://www.last.fm/music/L%27Arc~en~Ciel)               | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Muse](https://www.last.fm/music/Muse)                                   | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Radiohead](https://www.last.fm/music/Radiohead)                         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Rie Takahashi](https://www.last.fm/music/Rie+Takahashi)                 | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 | 10º [Sonic Youth](https://www.last.fm/music/Sonic+Youth)                    | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 11-09-2022 02:27:02 UTC
+🚀 **Última atualização:** 13-09-2022 02:27:01 UTC
