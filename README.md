@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                            🎧 Artistas da semana                            |                      📚 Últimos livros lidos                      |
-|-----------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Raul Seixas](https://www.last.fm/music/Raul+Seixas)                     | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Mythos](https://www.last.fm/music/Mythos)                               | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Anberlin](https://www.last.fm/music/Anberlin)                           | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [The Smashing Pumpkins](https://www.last.fm/music/The+Smashing+Pumpkins) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Anathema](https://www.last.fm/music/Anathema)                           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Wizet](https://www.last.fm/music/Wizet)                                 | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [The Beach Boys](https://www.last.fm/music/The+Beach+Boys)               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [U2](https://www.last.fm/music/U2)                                       | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Village People](https://www.last.fm/music/Village+People)               | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Rie Takahashi](https://www.last.fm/music/Rie+Takahashi)                | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                     🎧 Artistas da semana                     |                      📚 Últimos livros lidos                      |
+|---------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Raul Seixas](https://www.last.fm/music/Raul+Seixas)       | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Mythos](https://www.last.fm/music/Mythos)                 | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [U2](https://www.last.fm/music/U2)                         | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Jack Johnson](https://www.last.fm/music/Jack+Johnson)     | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Anathema](https://www.last.fm/music/Anathema)             | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Wizet](https://www.last.fm/music/Wizet)                   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [The Beach Boys](https://www.last.fm/music/The+Beach+Boys) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Village People](https://www.last.fm/music/Village+People) | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Rie Takahashi](https://www.last.fm/music/Rie+Takahashi)   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Amatsuki](https://www.last.fm/music/Amatsuki)            | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 15-09-2022 02:27:01 UTC
+🚀 **Última atualização:** 16-09-2022 02:27:02 UTC
