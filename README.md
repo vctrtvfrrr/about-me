@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                            🎧 Artistas da semana                            |                      📚 Últimos livros lidos                      |
-|-----------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Raul Seixas](https://www.last.fm/music/Raul+Seixas)                     | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Erik Satie](https://www.last.fm/music/Erik+Satie)                       | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Mythos](https://www.last.fm/music/Mythos)                               | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [U2](https://www.last.fm/music/U2)                                       | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Guns N' Roses](https://www.last.fm/music/Guns+N%27+Roses)               | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Frédéric Chopin](https://www.last.fm/music/Fr%C3%A9d%C3%A9ric+Chopin)   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Jack Johnson](https://www.last.fm/music/Jack+Johnson)                   | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Johann Sebastian Bach](https://www.last.fm/music/Johann+Sebastian+Bach) | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Scorpions](https://www.last.fm/music/Scorpions)                         | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Claude Debussy](https://www.last.fm/music/Claude+Debussy)              | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                             🎧 Artistas da semana                             |                      📚 Últimos livros lidos                      |
+|-------------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Erik Satie](https://www.last.fm/music/Erik+Satie)                         | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Frédéric Chopin](https://www.last.fm/music/Fr%C3%A9d%C3%A9ric+Chopin)     | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Guns N' Roses](https://www.last.fm/music/Guns+N%27+Roses)                 | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Johann Sebastian Bach](https://www.last.fm/music/Johann+Sebastian+Bach)   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [U2](https://www.last.fm/music/U2)                                         | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Claude Debussy](https://www.last.fm/music/Claude+Debussy)                 | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Jack Johnson](https://www.last.fm/music/Jack+Johnson)                     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Scorpions](https://www.last.fm/music/Scorpions)                           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Zемфира](https://www.last.fm/music/Z%D0%B5%D0%BC%D1%84%D0%B8%D1%80%D0%B0) | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [The Cranberries](https://www.last.fm/music/The+Cranberries)              | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 19-09-2022 02:27:02 UTC
+🚀 **Última atualização:** 22-09-2022 02:27:02 UTC
