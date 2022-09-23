@@ -39,14 +39,14 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 2º [Frédéric Chopin](https://www.last.fm/music/Fr%C3%A9d%C3%A9ric+Chopin)     | A Arte da Guerra	–	_Sun Tzu_                                        |
 | 3º [Guns N' Roses](https://www.last.fm/music/Guns+N%27+Roses)                 | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Johann Sebastian Bach](https://www.last.fm/music/Johann+Sebastian+Bach)   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [U2](https://www.last.fm/music/U2)                                         | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Claude Debussy](https://www.last.fm/music/Claude+Debussy)                 | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Jack Johnson](https://www.last.fm/music/Jack+Johnson)                     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Scorpions](https://www.last.fm/music/Scorpions)                           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Zемфира](https://www.last.fm/music/Z%D0%B5%D0%BC%D1%84%D0%B8%D1%80%D0%B0) | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [The Cranberries](https://www.last.fm/music/The+Cranberries)              | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 5º [Claude Debussy](https://www.last.fm/music/Claude+Debussy)                 | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Scorpions](https://www.last.fm/music/Scorpions)                           | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [The Cranberries](https://www.last.fm/music/The+Cranberries)               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Zемфира](https://www.last.fm/music/Z%D0%B5%D0%BC%D1%84%D0%B8%D1%80%D0%B0) | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Toto](https://www.last.fm/music/Toto)                                     | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Franz Schubert](https://www.last.fm/music/Franz+Schubert)                | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 22-09-2022 02:27:02 UTC
+🚀 **Última atualização:** 23-09-2022 02:27:01 UTC
