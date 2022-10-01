@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                               🎧 Artistas da semana                               |                      📚 Últimos livros lidos                      |
-|-----------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [BUMP OF CHICKEN](https://www.last.fm/music/BUMP+OF+CHICKEN)                   | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Pato Fu](https://www.last.fm/music/Pato+Fu)                                   | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Gorillaz](https://www.last.fm/music/Gorillaz)                                 | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [The Cranberries](https://www.last.fm/music/The+Cranberries)                   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Zемфира](https://www.last.fm/music/Z%D0%B5%D0%BC%D1%84%D0%B8%D1%80%D0%B0)     | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Foster the People](https://www.last.fm/music/Foster+the+People)               | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                             | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Sixpence None the Richer](https://www.last.fm/music/Sixpence+None+the+Richer) | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Toto](https://www.last.fm/music/Toto)                                         | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Eric Clapton](https://www.last.fm/music/Eric+Clapton)                        | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                         🎧 Artistas da semana                         |                      📚 Últimos livros lidos                      |
+|-----------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                 | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [BUMP OF CHICKEN](https://www.last.fm/music/BUMP+OF+CHICKEN)       | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Pato Fu](https://www.last.fm/music/Pato+Fu)                       | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Mark Knopfler](https://www.last.fm/music/Mark+Knopfler)           | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Dolores O'Riordan](https://www.last.fm/music/Dolores+O%27Riordan) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Green Day](https://www.last.fm/music/Green+Day)                   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Kasino](https://www.last.fm/music/Kasino)                         | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+|                                                                       | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+|                                                                       | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+|                                                                       | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 28-09-2022 02:27:02 UTC
+🚀 **Última atualização:** 01-10-2022 02:27:01 UTC
