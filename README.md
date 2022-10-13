@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                                             🎧 Artistas da semana                                              |                      📚 Últimos livros lidos                      |
-|----------------------------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Zé Ramalho](https://www.last.fm/music/Z%C3%A9+Ramalho)                                                     | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [ClariS](https://www.last.fm/music/ClariS)                                                                  | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [さユり](https://www.last.fm/music/%E3%81%95%E3%83%A6%E3%82%8A)                                             | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [スキマスイッチ](https://www.last.fm/music/%E3%82%B9%E3%82%AD%E3%83%9E%E3%82%B9%E3%82%A4%E3%83%83%E3%83%81) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Coldplay](https://www.last.fm/music/Coldplay)                                                              | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Geraldo Azevedo](https://www.last.fm/music/Geraldo+Azevedo)                                                | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [L'Arc~en~Ciel](https://www.last.fm/music/L%27Arc~en~Ciel)                                                  | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [きのこ帝国](https://www.last.fm/music/%E3%81%8D%E3%81%AE%E3%81%93%E5%B8%9D%E5%9B%BD)                       | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [中川翔子](https://www.last.fm/music/%E4%B8%AD%E5%B7%9D%E7%BF%94%E5%AD%90)                                  | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Arcade Player](https://www.last.fm/music/Arcade+Player)                                                   | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                                🎧 Artistas da semana                                |                      📚 Últimos livros lidos                      |
+|-------------------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Zé Ramalho](https://www.last.fm/music/Z%C3%A9+Ramalho)                          | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [さユり](https://www.last.fm/music/%E3%81%95%E3%83%A6%E3%82%8A)                  | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Coldplay](https://www.last.fm/music/Coldplay)                                   | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Geraldo Azevedo](https://www.last.fm/music/Geraldo+Azevedo)                     | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Arcade Player](https://www.last.fm/music/Arcade+Player)                         | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Chitãozinho & Xororó](https://www.last.fm/music/Chit%C3%A3ozinho+&+Xoror%C3%B3) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Studio EIM](https://www.last.fm/music/Studio+EIM)                               | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [YUKI](https://www.last.fm/music/YUKI)                                           | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+|                                                                                     | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 11-10-2022 02:27:01 UTC
+🚀 **Última atualização:** 13-10-2022 02:27:01 UTC
