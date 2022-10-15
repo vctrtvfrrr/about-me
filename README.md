@@ -36,17 +36,17 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |                                🎧 Artistas da semana                                |                      📚 Últimos livros lidos                      |
 |-------------------------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Zé Ramalho](https://www.last.fm/music/Z%C3%A9+Ramalho)                          | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [さユり](https://www.last.fm/music/%E3%81%95%E3%83%A6%E3%82%8A)                  | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 2º [Angela](https://www.last.fm/music/Angela)                                       | A Arte da Guerra	–	_Sun Tzu_                                        |
 | 3º [Coldplay](https://www.last.fm/music/Coldplay)                                   | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Geraldo Azevedo](https://www.last.fm/music/Geraldo+Azevedo)                     | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Arcade Player](https://www.last.fm/music/Arcade+Player)                         | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Chitãozinho & Xororó](https://www.last.fm/music/Chit%C3%A3ozinho+&+Xoror%C3%B3) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Studio EIM](https://www.last.fm/music/Studio+EIM)                               | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [YUKI](https://www.last.fm/music/YUKI)                                           | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 5º [Chitãozinho & Xororó](https://www.last.fm/music/Chit%C3%A3ozinho+&+Xoror%C3%B3) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                               | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Studio EIM](https://www.last.fm/music/Studio+EIM)                               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [YUKI](https://www.last.fm/music/YUKI)                                           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+|                                                                                     | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 |                                                                                     | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 13-10-2022 02:27:01 UTC
+🚀 **Última atualização:** 15-10-2022 02:27:02 UTC
