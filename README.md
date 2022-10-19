@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                 🎧 Artistas da semana                 |                      📚 Últimos livros lidos                      |
-|-------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Angela](https://www.last.fm/music/Angela)         | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Coldplay](https://www.last.fm/music/Coldplay)     | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Pink Floyd](https://www.last.fm/music/Pink+Floyd) | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [YUKI](https://www.last.fm/music/YUKI)             | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-|                                                       | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-|                                                       | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-|                                                       | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-|                                                       | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-|                                                       | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-|                                                       | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                      🎧 Artistas da semana                      |                      📚 Últimos livros lidos                      |
+|-----------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Louis Armstrong](https://www.last.fm/music/Louis+Armstrong) | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Angela](https://www.last.fm/music/Angela)                   | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [YUKI](https://www.last.fm/music/YUKI)                       | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Ella Fitzgerald](https://www.last.fm/music/Ella+Fitzgerald) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Lesiëm](https://www.last.fm/music/Lesi%C3%ABm)              | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Billie Holiday](https://www.last.fm/music/Billie+Holiday)   | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+|                                                                 | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+|                                                                 | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+|                                                                 | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 17-10-2022 02:27:01 UTC
+🚀 **Última atualização:** 19-10-2022 02:27:01 UTC
