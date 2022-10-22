@@ -37,16 +37,16 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |-------------------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [坂本真綾](https://www.last.fm/music/%E5%9D%82%E6%9C%AC%E7%9C%9F%E7%B6%BE) | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [Aimer](https://www.last.fm/music/Aimer)                                   | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Louis Armstrong](https://www.last.fm/music/Louis+Armstrong)               | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [YUKI](https://www.last.fm/music/YUKI)                                     | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Ella Fitzgerald](https://www.last.fm/music/Ella+Fitzgerald)               | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Lesiëm](https://www.last.fm/music/Lesi%C3%ABm)                            | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                         | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Angela](https://www.last.fm/music/Angela)                                 | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Billie Holiday](https://www.last.fm/music/Billie+Holiday)                 | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-|                                                                               | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 3º [梶浦由記](https://www.last.fm/music/%E6%A2%B6%E6%B5%A6%E7%94%B1%E8%A8%98) | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Louis Armstrong](https://www.last.fm/music/Louis+Armstrong)               | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Primus](https://www.last.fm/music/Primus)                                 | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [YUKI](https://www.last.fm/music/YUKI)                                     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Ella Fitzgerald](https://www.last.fm/music/Ella+Fitzgerald)               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Lesiëm](https://www.last.fm/music/Lesi%C3%ABm)                            | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                         | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Angela](https://www.last.fm/music/Angela)                                | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 21-10-2022 02:27:02 UTC
+🚀 **Última atualização:** 22-10-2022 02:27:01 UTC
