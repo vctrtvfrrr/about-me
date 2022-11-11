@@ -35,18 +35,18 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                               🎧 Artistas da semana                               |                      📚 Últimos livros lidos                      |
 |-----------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Josh Garrels](https://www.last.fm/music/Josh+Garrels)                         | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Anathema](https://www.last.fm/music/Anathema)                                 | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Sixpence None the Richer](https://www.last.fm/music/Sixpence+None+the+Richer) | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 1º [Sixpence None the Richer](https://www.last.fm/music/Sixpence+None+the+Richer) | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Dire Straits](https://www.last.fm/music/Dire+Straits)                         | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Eric Clapton](https://www.last.fm/music/Eric+Clapton)                         | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Band of Horses](https://www.last.fm/music/Band+of+Horses)                     | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Dire Straits](https://www.last.fm/music/Dire+Straits)                         | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers)       | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Catedral](https://www.last.fm/music/Catedral)                                 | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [30 Seconds to Mars](https://www.last.fm/music/30+Seconds+to+Mars)             | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Avril Lavigne](https://www.last.fm/music/Avril+Lavigne)                       | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                            | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 5º [Catedral](https://www.last.fm/music/Catedral)                                 | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Coldplay](https://www.last.fm/music/Coldplay)                                 | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Muse](https://www.last.fm/music/Muse)                                         | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Anathema](https://www.last.fm/music/Anathema)                                 | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Bee Gees](https://www.last.fm/music/Bee+Gees)                                 | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [David Gilmour](https://www.last.fm/music/David+Gilmour)                      | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 05-11-2022 02:27:01 UTC
+🚀 **Última atualização:** 11-11-2022 02:27:01 UTC
