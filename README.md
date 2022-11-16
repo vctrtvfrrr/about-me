@@ -37,16 +37,16 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |-----------------------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Eric Clapton](https://www.last.fm/music/Eric+Clapton)                         | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [Muse](https://www.last.fm/music/Muse)                                         | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [ASIAN KUNG-FU GENERATION](https://www.last.fm/music/ASIAN+KUNG-FU+GENERATION) | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Chemistry](https://www.last.fm/music/Chemistry)                               | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [John Mayer](https://www.last.fm/music/John+Mayer)                             | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [L'Arc~en~Ciel](https://www.last.fm/music/L%27Arc~en~Ciel)                     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Scandal](https://www.last.fm/music/Scandal)                                   | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Shoko Nakagawa](https://www.last.fm/music/Shoko+Nakagawa)                     | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Sid](https://www.last.fm/music/Sid)                                           | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [SlackCircus](https://www.last.fm/music/SlackCircus)                          | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 3º [Pearl Jam](https://www.last.fm/music/Pearl+Jam)                               | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [ASIAN KUNG-FU GENERATION](https://www.last.fm/music/ASIAN+KUNG-FU+GENERATION) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Joni Mitchell](https://www.last.fm/music/Joni+Mitchell)                       | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Chemistry](https://www.last.fm/music/Chemistry)                               | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [John Mayer](https://www.last.fm/music/John+Mayer)                             | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [L'Arc~en~Ciel](https://www.last.fm/music/L%27Arc~en~Ciel)                     | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Nat King Cole](https://www.last.fm/music/Nat+King+Cole)                       | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Scandal](https://www.last.fm/music/Scandal)                                  | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 15-11-2022 02:27:02 UTC
+🚀 **Última atualização:** 16-11-2022 02:27:01 UTC
