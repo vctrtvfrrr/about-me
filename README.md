@@ -36,17 +36,17 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |                            🎧 Artistas da semana                            |                      📚 Últimos livros lidos                      |
 |-----------------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Nat King Cole](https://www.last.fm/music/Nat+King+Cole)                 | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Johann Sebastian Bach](https://www.last.fm/music/Johann+Sebastian+Bach) | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Laura Pausini](https://www.last.fm/music/Laura+Pausini)                 | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 2º [Laura Pausini](https://www.last.fm/music/Laura+Pausini)                 | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                       | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [CPB](https://www.last.fm/music/CPB)                                     | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Ludwig van Beethoven](https://www.last.fm/music/Ludwig+van+Beethoven)   | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 5º [Johann Sebastian Bach](https://www.last.fm/music/Johann+Sebastian+Bach) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [Anathema](https://www.last.fm/music/Anathema)                           | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Edvard Grieg](https://www.last.fm/music/Edvard+Grieg)                   | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Frédéric Chopin](https://www.last.fm/music/Fr%C3%A9d%C3%A9ric+Chopin)   | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Ignaz Friedman](https://www.last.fm/music/Ignaz+Friedman)               | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [YUI](https://www.last.fm/music/YUI)                                    | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 7º [Pato Fu](https://www.last.fm/music/Pato+Fu)                             | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [YUI](https://www.last.fm/music/YUI)                                     | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Coldplay](https://www.last.fm/music/Coldplay)                           | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Green Day](https://www.last.fm/music/Green+Day)                        | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 26-11-2022 02:27:02 UTC
+🚀 **Última atualização:** 27-11-2022 02:27:02 UTC
