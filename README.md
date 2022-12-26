@@ -37,8 +37,8 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |---------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Jorge Ben](https://www.last.fm/music/Jorge+Ben)                                         | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [Tim Maia](https://www.last.fm/music/Tim+Maia)                                           | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                                       | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [きのこ帝国](https://www.last.fm/music/%E3%81%8D%E3%81%AE%E3%81%93%E5%B8%9D%E5%9B%BD)    | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 3º [Cassiano](https://www.last.fm/music/Cassiano)                                           | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                                       | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [A Banda Mais Bonita da Cidade](https://www.last.fm/music/A+Banda+Mais+Bonita+da+Cidade) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [Anathema](https://www.last.fm/music/Anathema)                                           | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 | 7º [Band of Horses](https://www.last.fm/music/Band+of+Horses)                               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
@@ -49,4 +49,4 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ---
 
-🚀 **Última atualização:** 25-12-2022 02:27:02 UTC
+🚀 **Última atualização:** 26-12-2022 02:27:02 UTC
