@@ -37,16 +37,16 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |---------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                                       | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [Cassiano](https://www.last.fm/music/Cassiano)                                           | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Palavrantiga](https://www.last.fm/music/Palavrantiga)                                   | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Sixpence None the Richer](https://www.last.fm/music/Sixpence+None+the+Richer)           | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [30 Seconds to Mars](https://www.last.fm/music/30+Seconds+to+Mars)                       | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [A Banda Mais Bonita da Cidade](https://www.last.fm/music/A+Banda+Mais+Bonita+da+Cidade) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Anathema](https://www.last.fm/music/Anathema)                                           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Band of Horses](https://www.last.fm/music/Band+of+Horses)                               | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Bob Marley & The Wailers](https://www.last.fm/music/Bob+Marley+&+The+Wailers)           | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Céline Dion](https://www.last.fm/music/C%C3%A9line+Dion)                               | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 3º [O Teatro Mágico](https://www.last.fm/music/O+Teatro+M%C3%A1gico)                        | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Palavrantiga](https://www.last.fm/music/Palavrantiga)                                   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Sixpence None the Richer](https://www.last.fm/music/Sixpence+None+the+Richer)           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [30 Seconds to Mars](https://www.last.fm/music/30+Seconds+to+Mars)                       | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [A Banda Mais Bonita da Cidade](https://www.last.fm/music/A+Banda+Mais+Bonita+da+Cidade) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Anathema](https://www.last.fm/music/Anathema)                                           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Band of Horses](https://www.last.fm/music/Band+of+Horses)                               | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Bob Marley & The Wailers](https://www.last.fm/music/Bob+Marley+&+The+Wailers)          | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 27-12-2022 02:27:01 UTC
+🚀 **Última atualização:** 28-12-2022 02:27:01 UTC
