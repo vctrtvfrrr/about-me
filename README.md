@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                                    🎧 Artistas da semana                                    |                      📚 Últimos livros lidos                      |
-|---------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                                       | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Cassiano](https://www.last.fm/music/Cassiano)                                           | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [O Teatro Mágico](https://www.last.fm/music/O+Teatro+M%C3%A1gico)                        | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Palavrantiga](https://www.last.fm/music/Palavrantiga)                                   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Sixpence None the Richer](https://www.last.fm/music/Sixpence+None+the+Richer)           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [30 Seconds to Mars](https://www.last.fm/music/30+Seconds+to+Mars)                       | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [A Banda Mais Bonita da Cidade](https://www.last.fm/music/A+Banda+Mais+Bonita+da+Cidade) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Anathema](https://www.last.fm/music/Anathema)                                           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Band of Horses](https://www.last.fm/music/Band+of+Horses)                               | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Bob Marley & The Wailers](https://www.last.fm/music/Bob+Marley+&+The+Wailers)          | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                               🎧 Artistas da semana                               |                      📚 Últimos livros lidos                      |
+|-----------------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                             | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Cassiano](https://www.last.fm/music/Cassiano)                                 | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Gorillaz](https://www.last.fm/music/Gorillaz)                                 | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Stênio Marcius](https://www.last.fm/music/St%C3%AAnio+Marcius)                | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Foo Fighters](https://www.last.fm/music/Foo+Fighters)                         | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Keane](https://www.last.fm/music/Keane)                                       | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [O Teatro Mágico](https://www.last.fm/music/O+Teatro+M%C3%A1gico)              | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Palavrantiga](https://www.last.fm/music/Palavrantiga)                         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Sixpence None the Richer](https://www.last.fm/music/Sixpence+None+the+Richer) | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [30 Seconds to Mars](https://www.last.fm/music/30+Seconds+to+Mars)            | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 28-12-2022 02:27:01 UTC
+🚀 **Última atualização:** 29-12-2022 02:27:01 UTC
