@@ -40,13 +40,13 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 3º [Lena Raine](https://www.last.fm/music/Lena+Raine)                                     | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Milton Nascimento](https://www.last.fm/music/Milton+Nascimento)                       | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Skank](https://www.last.fm/music/Skank)                                               | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Belchior](https://www.last.fm/music/Belchior)                                         | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Cássia Eller](https://www.last.fm/music/C%C3%A1ssia+Eller)                            | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Kid Abelha](https://www.last.fm/music/Kid+Abelha)                                     | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Lô Borges](https://www.last.fm/music/L%C3%B4+Borges)                                  | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Marisa Monte](https://www.last.fm/music/Marisa+Monte)                                | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 6º [Marisa Monte](https://www.last.fm/music/Marisa+Monte)                                 | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Alceu Valença](https://www.last.fm/music/Alceu+Valen%C3%A7a)                          | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Belchior](https://www.last.fm/music/Belchior)                                         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Chico Buarque](https://www.last.fm/music/Chico+Buarque)                               | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Edu Lobo](https://www.last.fm/music/Edu+Lobo)                                        | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 16-01-2023 02:27:01 UTC
+🚀 **Última atualização:** 17-01-2023 02:27:01 UTC
