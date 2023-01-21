@@ -35,11 +35,11 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                                   🎧 Artistas da semana                                   |                      📚 Últimos livros lidos                      |
 |-------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Creedence Clearwater Revival](https://www.last.fm/music/Creedence+Clearwater+Revival) | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Radiohead](https://www.last.fm/music/Radiohead)                                       | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana)                          | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Lena Raine](https://www.last.fm/music/Lena+Raine)                                     | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Anathema](https://www.last.fm/music/Anathema)                                         | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 1º [Radiohead](https://www.last.fm/music/Radiohead)                                       | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Creedence Clearwater Revival](https://www.last.fm/music/Creedence+Clearwater+Revival) | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Lena Raine](https://www.last.fm/music/Lena+Raine)                                     | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Anathema](https://www.last.fm/music/Anathema)                                         | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+|                                                                                           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 |                                                                                           | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 |                                                                                           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 |                                                                                           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
@@ -49,4 +49,4 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ---
 
-🚀 **Última atualização:** 19-01-2023 02:27:02 UTC
+🚀 **Última atualização:** 21-01-2023 02:27:01 UTC
