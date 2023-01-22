@@ -36,8 +36,8 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |                                   🎧 Artistas da semana                                   |                      📚 Últimos livros lidos                      |
 |-------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Radiohead](https://www.last.fm/music/Radiohead)                                       | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Creedence Clearwater Revival](https://www.last.fm/music/Creedence+Clearwater+Revival) | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Lena Raine](https://www.last.fm/music/Lena+Raine)                                     | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 2º [Lena Raine](https://www.last.fm/music/Lena+Raine)                                     | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Creedence Clearwater Revival](https://www.last.fm/music/Creedence+Clearwater+Revival) | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Anathema](https://www.last.fm/music/Anathema)                                         | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 |                                                                                           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 |                                                                                           | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
@@ -49,4 +49,4 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ---
 
-🚀 **Última atualização:** 21-01-2023 02:27:01 UTC
+🚀 **Última atualização:** 22-01-2023 02:27:02 UTC
