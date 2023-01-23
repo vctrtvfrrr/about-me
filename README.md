@@ -39,7 +39,7 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 2º [Lena Raine](https://www.last.fm/music/Lena+Raine)                                     | A Arte da Guerra	–	_Sun Tzu_                                        |
 | 3º [Creedence Clearwater Revival](https://www.last.fm/music/Creedence+Clearwater+Revival) | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Anathema](https://www.last.fm/music/Anathema)                                         | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-|                                                                                           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 5º [Bob Dylan](https://www.last.fm/music/Bob+Dylan)                                       | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 |                                                                                           | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 |                                                                                           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 |                                                                                           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
@@ -49,4 +49,4 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ---
 
-🚀 **Última atualização:** 22-01-2023 02:27:02 UTC
+🚀 **Última atualização:** 23-01-2023 02:27:01 UTC
