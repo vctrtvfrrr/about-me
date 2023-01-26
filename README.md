@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                    🎧 Artistas da semana                    |                      📚 Últimos livros lidos                      |
-|-------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [David Gilmour](https://www.last.fm/music/David+Gilmour) | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Radiohead](https://www.last.fm/music/Radiohead)         | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Lena Raine](https://www.last.fm/music/Lena+Raine)       | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Simple Plan](https://www.last.fm/music/Simple+Plan)     | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Eric Clapton](https://www.last.fm/music/Eric+Clapton)   | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Bob Dylan](https://www.last.fm/music/Bob+Dylan)         | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-|                                                             | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-|                                                             | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-|                                                             | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-|                                                             | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                            🎧 Artistas da semana                            |                      📚 Últimos livros lidos                      |
+|-----------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [David Gilmour](https://www.last.fm/music/David+Gilmour)                 | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Eric Clapton](https://www.last.fm/music/Eric+Clapton)                   | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Radiohead](https://www.last.fm/music/Radiohead)                         | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Lena Raine](https://www.last.fm/music/Lena+Raine)                       | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Bee Gees](https://www.last.fm/music/Bee+Gees)                           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Simple Plan](https://www.last.fm/music/Simple+Plan)                     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Bob Dylan](https://www.last.fm/music/Bob+Dylan)                         | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Derek and the Dominos](https://www.last.fm/music/Derek+and+the+Dominos) | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+|                                                                             | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+|                                                                             | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 25-01-2023 02:27:01 UTC
+🚀 **Última atualização:** 26-01-2023 02:27:02 UTC
