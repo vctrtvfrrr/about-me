@@ -41,12 +41,12 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 4º [Bee Gees](https://www.last.fm/music/Bee+Gees)                                         | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Foster the People](https://www.last.fm/music/Foster+the+People)                       | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [Simple Plan](https://www.last.fm/music/Simple+Plan)                                   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Lena Raine](https://www.last.fm/music/Lena+Raine)                                     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Creedence Clearwater Revival](https://www.last.fm/music/Creedence+Clearwater+Revival) | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [30 Seconds to Mars](https://www.last.fm/music/30+Seconds+to+Mars)                     | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 7º [Creedence Clearwater Revival](https://www.last.fm/music/Creedence+Clearwater+Revival) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [30 Seconds to Mars](https://www.last.fm/music/30+Seconds+to+Mars)                     | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Soweto](https://www.last.fm/music/Soweto)                                             | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 | 10º [Anberlin](https://www.last.fm/music/Anberlin)                                        | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 28-01-2023 02:27:02 UTC
+🚀 **Última atualização:** 29-01-2023 02:27:01 UTC
