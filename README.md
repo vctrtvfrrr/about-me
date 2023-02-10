@@ -63,7 +63,7 @@
 
 ---
 
-<div>
-<img src="http://github-readme-streak-stats.herokuapp.com?user=vctrtvfrrr" alt="GitHub Streak" />
-<img src="https://github-readme-stats.vercel.app/api/top-langs/?username=vctrtvfrrr&layout=compact&langs_count=8&hide=html,css" alt="Top Langs" align="left" />
+<div align="center">
+<img src="https://github-readme-stats.vercel.app/api/top-langs/?username=vctrtvfrrr&layout=compact&langs_count=8&hide=html,css" alt="Top Langs" width="350" align="left" />
+<img src="http://github-readme-streak-stats.herokuapp.com?user=vctrtvfrrr" alt="GitHub Streak" width="455" align="left" />
 </div>
