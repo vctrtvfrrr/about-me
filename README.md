@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                     🎧 Artistas da semana                     |                      📚 Últimos livros lidos                      |
-|---------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)         | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Scorpions](https://www.last.fm/music/Scorpions)           | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Ne-Yo](https://www.last.fm/music/Ne-Yo)                   | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Avril Lavigne](https://www.last.fm/music/Avril+Lavigne)   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Colbie Caillat](https://www.last.fm/music/Colbie+Caillat) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Kansas](https://www.last.fm/music/Kansas)                 | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Lady Gaga](https://www.last.fm/music/Lady+Gaga)           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Lena Raine](https://www.last.fm/music/Lena+Raine)         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Linkin Park](https://www.last.fm/music/Linkin+Park)       | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Miley Cyrus](https://www.last.fm/music/Miley+Cyrus)      | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                         🎧 Artistas da semana                         |                      📚 Últimos livros lidos                      |
+|-----------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)                 | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Scorpions](https://www.last.fm/music/Scorpions)                   | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Ne-Yo](https://www.last.fm/music/Ne-Yo)                           | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Avril Lavigne](https://www.last.fm/music/Avril+Lavigne)           | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [30 Seconds to Mars](https://www.last.fm/music/30+Seconds+to+Mars) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Colbie Caillat](https://www.last.fm/music/Colbie+Caillat)         | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Lady Gaga](https://www.last.fm/music/Lady+Gaga)                   | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Lena Raine](https://www.last.fm/music/Lena+Raine)                 | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Linkin Park](https://www.last.fm/music/Linkin+Park)               | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Miley Cyrus](https://www.last.fm/music/Miley+Cyrus)              | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 16-02-2023 02:27:01 UTC
+🚀 **Última atualização:** 17-02-2023 02:27:01 UTC
