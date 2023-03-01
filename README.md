@@ -36,7 +36,7 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |                        🎧 Artistas da semana                        |                      📚 Últimos livros lidos                      |
 |---------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana)    | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)               | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 2º [Anathema](https://www.last.fm/music/Anathema)                   | A Arte da Guerra	–	_Sun Tzu_                                        |
 | 3º [Rinaldo Viana](https://www.last.fm/music/Rinaldo+Viana)         | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Arctic Monkeys](https://www.last.fm/music/Arctic+Monkeys)       | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Foster the People](https://www.last.fm/music/Foster+the+People) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
@@ -49,4 +49,4 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ---
 
-🚀 **Última atualização:** 28-02-2023 02:27:02 UTC
+🚀 **Última atualização:** 01-03-2023 02:27:02 UTC
