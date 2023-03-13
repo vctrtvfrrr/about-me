@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                       🎧 Artistas da semana                       |                      📚 Últimos livros lidos                      |
-|-------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Coldplay](https://www.last.fm/music/Coldplay)                 | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [A Perfect Circle](https://www.last.fm/music/A+Perfect+Circle) | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Armandinho](https://www.last.fm/music/Armandinho)             | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Blitz](https://www.last.fm/music/Blitz)                       | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Criolo](https://www.last.fm/music/Criolo)                     | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana)  | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Lulu Santos](https://www.last.fm/music/Lulu+Santos)           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Pitty](https://www.last.fm/music/Pitty)                       | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Raul Seixas](https://www.last.fm/music/Raul+Seixas)           | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Renato Russo](https://www.last.fm/music/Renato+Russo)        | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                        🎧 Artistas da semana                        |                      📚 Últimos livros lidos                      |
+|---------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Coldplay](https://www.last.fm/music/Coldplay)                   | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [A Perfect Circle](https://www.last.fm/music/A+Perfect+Circle)   | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Daft Punk](https://www.last.fm/music/Daft+Punk)                 | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Armandinho](https://www.last.fm/music/Armandinho)               | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Simon & Garfunkel](https://www.last.fm/music/Simon+&+Garfunkel) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Blitz](https://www.last.fm/music/Blitz)                         | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Criolo](https://www.last.fm/music/Criolo)                       | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana)    | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Lulu Santos](https://www.last.fm/music/Lulu+Santos)             | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Pitty](https://www.last.fm/music/Pitty)                        | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 11-03-2023 02:27:02 UTC
+🚀 **Última atualização:** 13-03-2023 02:27:02 UTC
