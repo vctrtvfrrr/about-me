@@ -37,16 +37,16 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |---------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Pink Floyd](https://www.last.fm/music/Pink+Floyd)               | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [America](https://www.last.fm/music/America)                     | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Coldplay](https://www.last.fm/music/Coldplay)                   | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Daft Punk](https://www.last.fm/music/Daft+Punk)                 | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [A Perfect Circle](https://www.last.fm/music/A+Perfect+Circle)   | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Armandinho](https://www.last.fm/music/Armandinho)               | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Simon & Garfunkel](https://www.last.fm/music/Simon+&+Garfunkel) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Blitz](https://www.last.fm/music/Blitz)                         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Lena Raine](https://www.last.fm/music/Lena+Raine)               | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 3º [Daft Punk](https://www.last.fm/music/Daft+Punk)                 | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Dire Straits](https://www.last.fm/music/Dire+Straits)           | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Simon & Garfunkel](https://www.last.fm/music/Simon+&+Garfunkel) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Lena Raine](https://www.last.fm/music/Lena+Raine)               | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+|                                                                     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+|                                                                     | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+|                                                                     | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 |                                                                     | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 17-03-2023 02:27:02 UTC
+🚀 **Última atualização:** 19-03-2023 02:27:02 UTC
