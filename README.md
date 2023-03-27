@@ -42,11 +42,11 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 5º [Coldplay](https://www.last.fm/music/Coldplay)                     | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [009 Sound System](https://www.last.fm/music/009+Sound+System)     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 | 7º [Akcent](https://www.last.fm/music/Akcent)                         | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Eir Aoi](https://www.last.fm/music/Eir+Aoi)                       | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Guru Josh Project](https://www.last.fm/music/Guru+Josh+Project)   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [李有源](https://www.last.fm/music/%E6%9D%8E%E6%9C%89%E6%BA%90)   | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 8º [Guru Josh Project](https://www.last.fm/music/Guru+Josh+Project)   | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [李有源](https://www.last.fm/music/%E6%9D%8E%E6%9C%89%E6%BA%90)    | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Kansas](https://www.last.fm/music/Kansas)                        | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 26-03-2023 02:27:02 UTC
+🚀 **Última atualização:** 27-03-2023 02:27:02 UTC
