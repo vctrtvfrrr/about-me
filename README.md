@@ -40,13 +40,13 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 3º [Gorillaz](https://www.last.fm/music/Gorillaz)                  | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Jimi Hendrix](https://www.last.fm/music/Jimi+Hendrix)          | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Kasabian](https://www.last.fm/music/Kasabian)                  | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Franz Ferdinand](https://www.last.fm/music/Franz+Ferdinand)    | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 6º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Franz Ferdinand](https://www.last.fm/music/Franz+Ferdinand)    | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 | 8º [Coldplay](https://www.last.fm/music/Coldplay)                  | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 | 9º [David Guetta](https://www.last.fm/music/David+Guetta)          | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Village People](https://www.last.fm/music/Village+People)     | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 10º [Edward Maya](https://www.last.fm/music/Edward+Maya)           | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 05-04-2023 00:27:01 UTC
+🚀 **Última atualização:** 05-04-2023 17:27:02 UTC
