@@ -36,8 +36,8 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |                       🎧 Artistas da semana                        |                      📚 Últimos livros lidos                      |
 |--------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Kaiser Chiefs](https://www.last.fm/music/Kaiser+Chiefs)        | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana)   | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Gorillaz](https://www.last.fm/music/Gorillaz)                  | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 2º [Gorillaz](https://www.last.fm/music/Gorillaz)                  | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana)   | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Jimi Hendrix](https://www.last.fm/music/Jimi+Hendrix)          | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Kasabian](https://www.last.fm/music/Kasabian)                  | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
@@ -49,4 +49,4 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ---
 
-🚀 **Última atualização:** 05-04-2023 17:27:02 UTC
+🚀 **Última atualização:** 06-04-2023 00:27:02 UTC
