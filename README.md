@@ -35,18 +35,18 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 |                       🎧 Artistas da semana                        |                      📚 Últimos livros lidos                      |
 |--------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Kaiser Chiefs](https://www.last.fm/music/Kaiser+Chiefs)        | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab) | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Jimi Hendrix](https://www.last.fm/music/Jimi+Hendrix)          | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Kasabian](https://www.last.fm/music/Kasabian)                  | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Franz Ferdinand](https://www.last.fm/music/Franz+Ferdinand)    | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Coldplay](https://www.last.fm/music/Coldplay)                  | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Gorillaz](https://www.last.fm/music/Gorillaz)                  | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [David Guetta](https://www.last.fm/music/David+Guetta)          | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Edward Maya](https://www.last.fm/music/Edward+Maya)            | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Band of Horses](https://www.last.fm/music/Band+of+Horses)     | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 1º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab) | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Kasabian](https://www.last.fm/music/Kasabian)                  | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Franz Ferdinand](https://www.last.fm/music/Franz+Ferdinand)    | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Coldplay](https://www.last.fm/music/Coldplay)                  | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [David Guetta](https://www.last.fm/music/David+Guetta)          | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Edward Maya](https://www.last.fm/music/Edward+Maya)            | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Band of Horses](https://www.last.fm/music/Band+of+Horses)      | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Blind Guardian](https://www.last.fm/music/Blind+Guardian)      | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [M83](https://www.last.fm/music/M83)                            | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Nelly Furtado](https://www.last.fm/music/Nelly+Furtado)       | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 07-04-2023 00:27:02 UTC
+🚀 **Última atualização:** 10-04-2023 17:27:02 UTC
