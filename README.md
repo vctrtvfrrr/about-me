@@ -43,10 +43,10 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 6º [Coldplay](https://www.last.fm/music/Coldplay)                  | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 | 7º [David Guetta](https://www.last.fm/music/David+Guetta)          | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 | 8º [Edward Maya](https://www.last.fm/music/Edward+Maya)            | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-|                                                                    | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 9º [Muse](https://www.last.fm/music/Muse)                          | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 |                                                                    | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 13-04-2023 00:27:03 UTC
+🚀 **Última atualização:** 13-04-2023 12:27:01 UTC
