@@ -39,14 +39,14 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 2º [M83](https://www.last.fm/music/M83)                            | A Arte da Guerra	–	_Sun Tzu_                                        |
 | 3º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab) | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Lena Raine](https://www.last.fm/music/Lena+Raine)              | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Muse](https://www.last.fm/music/Muse)                          | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Nelly Furtado](https://www.last.fm/music/Nelly+Furtado)        | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Samuel Åberg](https://www.last.fm/music/Samuel+%C3%85berg)     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-|                                                                    | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 5º [Toto](https://www.last.fm/music/Toto)                          | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Muse](https://www.last.fm/music/Muse)                          | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Nelly Furtado](https://www.last.fm/music/Nelly+Furtado)        | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Samuel Åberg](https://www.last.fm/music/Samuel+%C3%85berg)     | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 |                                                                    | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 |                                                                    | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 14-04-2023 15:27:02 UTC
+🚀 **Última atualização:** 14-04-2023 18:27:01 UTC
