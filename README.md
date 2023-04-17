@@ -38,15 +38,15 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 1º [C418](https://www.last.fm/music/C418)                          | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [M83](https://www.last.fm/music/M83)                            | A Arte da Guerra	–	_Sun Tzu_                                        |
 | 3º [Eric Clapton](https://www.last.fm/music/Eric+Clapton)          | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Toto](https://www.last.fm/music/Toto)                          | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Louis Armstrong](https://www.last.fm/music/Louis+Armstrong)    | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 4º [Toto](https://www.last.fm/music/Toto)                          | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Louis Armstrong](https://www.last.fm/music/Louis+Armstrong)    | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 | 7º [Lena Raine](https://www.last.fm/music/Lena+Raine)              | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 | 8º [Muse](https://www.last.fm/music/Muse)                          | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Nelly Furtado](https://www.last.fm/music/Nelly+Furtado)        | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Samuel Åberg](https://www.last.fm/music/Samuel+%C3%85berg)    | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 9º [Samuel Åberg](https://www.last.fm/music/Samuel+%C3%85berg)     | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+|                                                                    | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 17-04-2023 15:27:02 UTC
+🚀 **Última atualização:** 17-04-2023 18:27:02 UTC
