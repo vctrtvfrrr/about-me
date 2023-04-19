@@ -40,13 +40,13 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 3º [Edu Lobo](https://www.last.fm/music/Edu+Lobo)                   | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Louis Armstrong](https://www.last.fm/music/Louis+Armstrong)     | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Eric Clapton](https://www.last.fm/music/Eric+Clapton)           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Toto](https://www.last.fm/music/Toto)                           | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [M83](https://www.last.fm/music/M83)                             | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Ella Fitzgerald](https://www.last.fm/music/Ella+Fitzgerald)     | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Loreena McKennitt](https://www.last.fm/music/Loreena+McKennitt) | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 6º [Loreena McKennitt](https://www.last.fm/music/Loreena+McKennitt) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Toto](https://www.last.fm/music/Toto)                           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [M83](https://www.last.fm/music/M83)                             | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Ella Fitzgerald](https://www.last.fm/music/Ella+Fitzgerald)     | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 | 10º [Lena Raine](https://www.last.fm/music/Lena+Raine)              | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 19-04-2023 15:27:02 UTC
+🚀 **Última atualização:** 19-04-2023 18:27:02 UTC
