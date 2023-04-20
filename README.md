@@ -37,11 +37,11 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |---------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [C418](https://www.last.fm/music/C418)                           | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [Epica](https://www.last.fm/music/Epica)                         | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Enya](https://www.last.fm/music/Enya)                           | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Loreena McKennitt](https://www.last.fm/music/Loreena+McKennitt) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Edu Lobo](https://www.last.fm/music/Edu+Lobo)                   | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Louis Armstrong](https://www.last.fm/music/Louis+Armstrong)     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Evanescence](https://www.last.fm/music/Evanescence)             | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 3º [Evanescence](https://www.last.fm/music/Evanescence)             | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Enya](https://www.last.fm/music/Enya)                           | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Loreena McKennitt](https://www.last.fm/music/Loreena+McKennitt) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Edu Lobo](https://www.last.fm/music/Edu+Lobo)                   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Louis Armstrong](https://www.last.fm/music/Louis+Armstrong)     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 | 8º [Eric Clapton](https://www.last.fm/music/Eric+Clapton)           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 | 9º [Toto](https://www.last.fm/music/Toto)                           | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 | 10º [M83](https://www.last.fm/music/M83)                            | O imbecil coletivo	–	_Olavo de Carvalho_                            |
@@ -49,4 +49,4 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ---
 
-🚀 **Última atualização:** 19-04-2023 21:27:01 UTC
+🚀 **Última atualização:** 20-04-2023 00:27:02 UTC
