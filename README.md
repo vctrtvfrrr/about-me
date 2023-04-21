@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                        🎧 Artistas da semana                        |                      📚 Últimos livros lidos                      |
-|---------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Epica](https://www.last.fm/music/Epica)                         | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Evanescence](https://www.last.fm/music/Evanescence)             | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Enya](https://www.last.fm/music/Enya)                           | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Loreena McKennitt](https://www.last.fm/music/Loreena+McKennitt) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Edu Lobo](https://www.last.fm/music/Edu+Lobo)                   | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Louis Armstrong](https://www.last.fm/music/Louis+Armstrong)     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Village People](https://www.last.fm/music/Village+People)       | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Eric Clapton](https://www.last.fm/music/Eric+Clapton)           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Toto](https://www.last.fm/music/Toto)                           | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [C418](https://www.last.fm/music/C418)                          | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                         🎧 Artistas da semana                          |                      📚 Últimos livros lidos                      |
+|------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Epica](https://www.last.fm/music/Epica)                            | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Evanescence](https://www.last.fm/music/Evanescence)                | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Enya](https://www.last.fm/music/Enya)                              | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Loreena McKennitt](https://www.last.fm/music/Loreena+McKennitt)    | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Edu Lobo](https://www.last.fm/music/Edu+Lobo)                      | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Louis Armstrong](https://www.last.fm/music/Louis+Armstrong)        | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Village People](https://www.last.fm/music/Village+People)          | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Eric Clapton](https://www.last.fm/music/Eric+Clapton)              | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Toto](https://www.last.fm/music/Toto)                              | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Oswaldo Montenegro](https://www.last.fm/music/Oswaldo+Montenegro) | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 21-04-2023 03:27:01 UTC
+🚀 **Última atualização:** 21-04-2023 15:27:02 UTC
