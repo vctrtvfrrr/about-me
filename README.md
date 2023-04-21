@@ -42,11 +42,11 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 5º [Edu Lobo](https://www.last.fm/music/Edu+Lobo)                     | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [Louis Armstrong](https://www.last.fm/music/Louis+Armstrong)       | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 | 7º [Village People](https://www.last.fm/music/Village+People)         | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Eric Clapton](https://www.last.fm/music/Eric+Clapton)             | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Oswaldo Montenegro](https://www.last.fm/music/Oswaldo+Montenegro) | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Toto](https://www.last.fm/music/Toto)                            | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 8º [Oswaldo Montenegro](https://www.last.fm/music/Oswaldo+Montenegro) | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Eric Clapton](https://www.last.fm/music/Eric+Clapton)             | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Ella Fitzgerald](https://www.last.fm/music/Ella+Fitzgerald)      | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 21-04-2023 18:27:03 UTC
+🚀 **Última atualização:** 21-04-2023 21:27:01 UTC
