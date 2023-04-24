@@ -40,13 +40,13 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 3º [Enya](https://www.last.fm/music/Enya)                             | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Loreena McKennitt](https://www.last.fm/music/Loreena+McKennitt)   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Edu Lobo](https://www.last.fm/music/Edu+Lobo)                     | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Louis Armstrong](https://www.last.fm/music/Louis+Armstrong)       | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Village People](https://www.last.fm/music/Village+People)         | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Oswaldo Montenegro](https://www.last.fm/music/Oswaldo+Montenegro) | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Eric Clapton](https://www.last.fm/music/Eric+Clapton)             | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Ella Fitzgerald](https://www.last.fm/music/Ella+Fitzgerald)      | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 6º [Village People](https://www.last.fm/music/Village+People)         | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Oswaldo Montenegro](https://www.last.fm/music/Oswaldo+Montenegro) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Louis Armstrong](https://www.last.fm/music/Louis+Armstrong)       | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Ella Fitzgerald](https://www.last.fm/music/Ella+Fitzgerald)       | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Patrick Hernandez](https://www.last.fm/music/Patrick+Hernandez)  | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 22-04-2023 00:27:03 UTC
+🚀 **Última atualização:** 24-04-2023 09:27:02 UTC
