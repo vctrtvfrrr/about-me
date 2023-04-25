@@ -39,14 +39,14 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 2º [Evanescence](https://www.last.fm/music/Evanescence)               | A Arte da Guerra	–	_Sun Tzu_                                        |
 | 3º [Enya](https://www.last.fm/music/Enya)                             | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Loreena McKennitt](https://www.last.fm/music/Loreena+McKennitt)   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Epica](https://www.last.fm/music/Epica)                           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Village People](https://www.last.fm/music/Village+People)         | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Oswaldo Montenegro](https://www.last.fm/music/Oswaldo+Montenegro) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Tuatha de Danann](https://www.last.fm/music/Tuatha+de+Danann)     | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Patrick Hernandez](https://www.last.fm/music/Patrick+Hernandez)   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 5º [Village People](https://www.last.fm/music/Village+People)         | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Oswaldo Montenegro](https://www.last.fm/music/Oswaldo+Montenegro) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Tuatha de Danann](https://www.last.fm/music/Tuatha+de+Danann)     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Patrick Hernandez](https://www.last.fm/music/Patrick+Hernandez)   | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+|                                                                       | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 |                                                                       | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 25-04-2023 18:27:02 UTC
+🚀 **Última atualização:** 25-04-2023 21:27:02 UTC
