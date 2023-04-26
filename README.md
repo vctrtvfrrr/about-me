@@ -39,9 +39,9 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 2º [Evanescence](https://www.last.fm/music/Evanescence)               | A Arte da Guerra	–	_Sun Tzu_                                        |
 | 3º [Enya](https://www.last.fm/music/Enya)                             | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Village People](https://www.last.fm/music/Village+People)         | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Loreena McKennitt](https://www.last.fm/music/Loreena+McKennitt)   | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Oswaldo Montenegro](https://www.last.fm/music/Oswaldo+Montenegro) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Tuatha de Danann](https://www.last.fm/music/Tuatha+de+Danann)     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 5º [Oswaldo Montenegro](https://www.last.fm/music/Oswaldo+Montenegro) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Tuatha de Danann](https://www.last.fm/music/Tuatha+de+Danann)     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Loreena McKennitt](https://www.last.fm/music/Loreena+McKennitt)   | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 | 8º [Patrick Hernandez](https://www.last.fm/music/Patrick+Hernandez)   | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 |                                                                       | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 |                                                                       | O imbecil coletivo	–	_Olavo de Carvalho_                            |
@@ -49,4 +49,4 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ---
 
-🚀 **Última atualização:** 26-04-2023 15:27:02 UTC
+🚀 **Última atualização:** 26-04-2023 18:27:01 UTC
