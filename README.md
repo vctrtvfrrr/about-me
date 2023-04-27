@@ -39,8 +39,8 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 2º [Village People](https://www.last.fm/music/Village+People)         | A Arte da Guerra	–	_Sun Tzu_                                        |
 | 3º [Oswaldo Montenegro](https://www.last.fm/music/Oswaldo+Montenegro) | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Tuatha de Danann](https://www.last.fm/music/Tuatha+de+Danann)     | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Evanescence](https://www.last.fm/music/Evanescence)               | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Patrick Hernandez](https://www.last.fm/music/Patrick+Hernandez)   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 5º [Patrick Hernandez](https://www.last.fm/music/Patrick+Hernandez)   | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+|                                                                       | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 |                                                                       | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 |                                                                       | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 |                                                                       | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
@@ -49,4 +49,4 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ---
 
-🚀 **Última atualização:** 26-04-2023 21:27:02 UTC
+🚀 **Última atualização:** 27-04-2023 00:27:02 UTC
