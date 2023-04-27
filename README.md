@@ -36,9 +36,9 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |                         🎧 Artistas da semana                         |                      📚 Últimos livros lidos                      |
 |-----------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Gorillaz](https://www.last.fm/music/Gorillaz)                     | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Oswaldo Montenegro](https://www.last.fm/music/Oswaldo+Montenegro) | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Tuatha de Danann](https://www.last.fm/music/Tuatha+de+Danann)     | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Village People](https://www.last.fm/music/Village+People)         | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 2º [After Forever](https://www.last.fm/music/After+Forever)           | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Oswaldo Montenegro](https://www.last.fm/music/Oswaldo+Montenegro) | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Tuatha de Danann](https://www.last.fm/music/Tuatha+de+Danann)     | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 |                                                                       | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 |                                                                       | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 |                                                                       | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
@@ -49,4 +49,4 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ---
 
-🚀 **Última atualização:** 27-04-2023 15:27:01 UTC
+🚀 **Última atualização:** 27-04-2023 18:27:01 UTC
