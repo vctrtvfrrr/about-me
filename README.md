@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                                   🎧 Artistas da semana                                   |                      📚 Últimos livros lidos                      |
-|-------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Gorillaz](https://www.last.fm/music/Gorillaz)                                         | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [After Forever](https://www.last.fm/music/After+Forever)                               | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Radiohead](https://www.last.fm/music/Radiohead)                                       | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Anathema](https://www.last.fm/music/Anathema)                                         | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Coldplay](https://www.last.fm/music/Coldplay)                                         | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Pearl Jam](https://www.last.fm/music/Pearl+Jam)                                       | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Tuatha de Danann](https://www.last.fm/music/Tuatha+de+Danann)                         | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Wizet](https://www.last.fm/music/Wizet)                                               | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Creedence Clearwater Revival](https://www.last.fm/music/Creedence+Clearwater+Revival) | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-|                                                                                           | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                                   🎧 Artistas da semana                                    |                      📚 Últimos livros lidos                      |
+|--------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Radiohead](https://www.last.fm/music/Radiohead)                                        | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [After Forever](https://www.last.fm/music/After+Forever)                                | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Coldplay](https://www.last.fm/music/Coldplay)                                          | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Gorillaz](https://www.last.fm/music/Gorillaz)                                          | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Anathema](https://www.last.fm/music/Anathema)                                          | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Pearl Jam](https://www.last.fm/music/Pearl+Jam)                                        | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Tuatha de Danann](https://www.last.fm/music/Tuatha+de+Danann)                          | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Wizet](https://www.last.fm/music/Wizet)                                                | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Ace of Base](https://www.last.fm/music/Ace+of+Base)                                    | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Creedence Clearwater Revival](https://www.last.fm/music/Creedence+Clearwater+Revival) | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 01-05-2023 15:27:02 UTC
+🚀 **Última atualização:** 01-05-2023 18:27:02 UTC
