@@ -40,13 +40,13 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 3º [Coldplay](https://www.last.fm/music/Coldplay)                  | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Anathema](https://www.last.fm/music/Anathema)                  | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Pearl Jam](https://www.last.fm/music/Pearl+Jam)                | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Tuatha de Danann](https://www.last.fm/music/Tuatha+de+Danann)  | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Green Day](https://www.last.fm/music/Green+Day)                | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [John Denver](https://www.last.fm/music/John+Denver)            | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 6º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Green Day](https://www.last.fm/music/Green+Day)                | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [John Denver](https://www.last.fm/music/John+Denver)            | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Tuatha de Danann](https://www.last.fm/music/Tuatha+de+Danann)  | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 | 10º [Wizet](https://www.last.fm/music/Wizet)                       | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 02-05-2023 12:27:02 UTC
+🚀 **Última atualização:** 02-05-2023 15:27:02 UTC
