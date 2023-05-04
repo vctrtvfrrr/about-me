@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                       🎧 Artistas da semana                        |                      📚 Últimos livros lidos                      |
-|--------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Radiohead](https://www.last.fm/music/Radiohead)                | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Pearl Jam](https://www.last.fm/music/Pearl+Jam)                | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Anathema](https://www.last.fm/music/Anathema)                  | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Coldplay](https://www.last.fm/music/Coldplay)                  | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Green Day](https://www.last.fm/music/Green+Day)                | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [John Denver](https://www.last.fm/music/John+Denver)            | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Skank](https://www.last.fm/music/Skank)                        | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Ace of Base](https://www.last.fm/music/Ace+of+Base)            | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Enya](https://www.last.fm/music/Enya)                         | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                        🎧 Artistas da semana                        |                      📚 Últimos livros lidos                      |
+|---------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Radiohead](https://www.last.fm/music/Radiohead)                 | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Pearl Jam](https://www.last.fm/music/Pearl+Jam)                 | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Anathema](https://www.last.fm/music/Anathema)                   | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Coldplay](https://www.last.fm/music/Coldplay)                   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab)  | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Green Day](https://www.last.fm/music/Green+Day)                 | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Foo Fighters](https://www.last.fm/music/Foo+Fighters)           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [John Denver](https://www.last.fm/music/John+Denver)             | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Loreena McKennitt](https://www.last.fm/music/Loreena+McKennitt) | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Skank](https://www.last.fm/music/Skank)                        | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 04-05-2023 18:27:02 UTC
+🚀 **Última atualização:** 04-05-2023 21:27:02 UTC
