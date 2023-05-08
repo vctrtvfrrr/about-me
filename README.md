@@ -40,13 +40,13 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 3º [Coldplay](https://www.last.fm/music/Coldplay)                     | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Green Day](https://www.last.fm/music/Green+Day)                   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Loreena McKennitt](https://www.last.fm/music/Loreena+McKennitt)   | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Muse](https://www.last.fm/music/Muse)                             | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Pearl Jam](https://www.last.fm/music/Pearl+Jam)                   | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [30 Seconds to Mars](https://www.last.fm/music/30+Seconds+to+Mars) | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 6º [30 Seconds to Mars](https://www.last.fm/music/30+Seconds+to+Mars) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Gorillaz](https://www.last.fm/music/Gorillaz)                     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Pearl Jam](https://www.last.fm/music/Pearl+Jam)                   | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 | 9º [Anathema](https://www.last.fm/music/Anathema)                     | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 | 10º [Enya](https://www.last.fm/music/Enya)                            | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 08-05-2023 12:27:01 UTC
+🚀 **Última atualização:** 08-05-2023 15:27:02 UTC
