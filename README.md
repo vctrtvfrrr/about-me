@@ -38,10 +38,10 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 1º [Radiohead](https://www.last.fm/music/Radiohead)                   | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab)    | A Arte da Guerra	–	_Sun Tzu_                                        |
 | 3º [Coldplay](https://www.last.fm/music/Coldplay)                     | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Green Day](https://www.last.fm/music/Green+Day)                   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Loreena McKennitt](https://www.last.fm/music/Loreena+McKennitt)   | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [30 Seconds to Mars](https://www.last.fm/music/30+Seconds+to+Mars) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Gorillaz](https://www.last.fm/music/Gorillaz)                     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 4º [Loreena McKennitt](https://www.last.fm/music/Loreena+McKennitt)   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [30 Seconds to Mars](https://www.last.fm/music/30+Seconds+to+Mars) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Gorillaz](https://www.last.fm/music/Gorillaz)                     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Green Day](https://www.last.fm/music/Green+Day)                   | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 | 8º [Pearl Jam](https://www.last.fm/music/Pearl+Jam)                   | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 | 9º [Anathema](https://www.last.fm/music/Anathema)                     | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 | 10º [Enya](https://www.last.fm/music/Enya)                            | O imbecil coletivo	–	_Olavo de Carvalho_                            |
@@ -49,4 +49,4 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ---
 
-🚀 **Última atualização:** 08-05-2023 15:27:02 UTC
+🚀 **Última atualização:** 08-05-2023 18:27:02 UTC
