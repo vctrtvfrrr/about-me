@@ -41,12 +41,12 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 4º [Evanescence](https://www.last.fm/music/Evanescence)               | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Franz Ferdinand](https://www.last.fm/music/Franz+Ferdinand)       | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [Gorillaz](https://www.last.fm/music/Gorillaz)                     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Green Day](https://www.last.fm/music/Green+Day)                   | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [30 Seconds to Mars](https://www.last.fm/music/30+Seconds+to+Mars) | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Anathema](https://www.last.fm/music/Anathema)                     | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Muse](https://www.last.fm/music/Muse)                            | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 7º [30 Seconds to Mars](https://www.last.fm/music/30+Seconds+to+Mars) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Green Day](https://www.last.fm/music/Green+Day)                   | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Muse](https://www.last.fm/music/Muse)                             | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Anathema](https://www.last.fm/music/Anathema)                    | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 11-05-2023 18:27:01 UTC
+🚀 **Última atualização:** 11-05-2023 21:27:02 UTC
