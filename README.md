@@ -36,17 +36,17 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |                         🎧 Artistas da semana                         |                      📚 Últimos livros lidos                      |
 |-----------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Jimi Hendrix](https://www.last.fm/music/Jimi+Hendrix)             | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Coldplay](https://www.last.fm/music/Coldplay)                     | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Deep Purple](https://www.last.fm/music/Deep+Purple)               | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Guns N' Roses](https://www.last.fm/music/Guns+N%27+Roses)         | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 2º [Guns N' Roses](https://www.last.fm/music/Guns+N%27+Roses)         | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Coldplay](https://www.last.fm/music/Coldplay)                     | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Deep Purple](https://www.last.fm/music/Deep+Purple)               | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Radiohead](https://www.last.fm/music/Radiohead)                   | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Animals as Leaders](https://www.last.fm/music/Animals+as+Leaders) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Dream Theater](https://www.last.fm/music/Dream+Theater)           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Epica](https://www.last.fm/music/Epica)                           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Eric Clapton](https://www.last.fm/music/Eric+Clapton)             | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Evanescence](https://www.last.fm/music/Evanescence)              | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 6º [Scorpions](https://www.last.fm/music/Scorpions)                   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Steven Wilson](https://www.last.fm/music/Steven+Wilson)           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Animals as Leaders](https://www.last.fm/music/Animals+as+Leaders) | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Dream Theater](https://www.last.fm/music/Dream+Theater)           | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Epica](https://www.last.fm/music/Epica)                          | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 15-05-2023 15:27:02 UTC
+🚀 **Última atualização:** 15-05-2023 18:27:03 UTC
