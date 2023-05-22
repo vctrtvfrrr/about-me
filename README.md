@@ -37,16 +37,16 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |-------------------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers)   | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [U2](https://www.last.fm/music/U2)                                         | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Zемфира](https://www.last.fm/music/Z%D0%B5%D0%BC%D1%84%D0%B8%D1%80%D0%B0) | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [David Gilmour](https://www.last.fm/music/David+Gilmour)                   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Jimi Hendrix](https://www.last.fm/music/Jimi+Hendrix)                     | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Steven Wilson](https://www.last.fm/music/Steven+Wilson)                   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [The Rolling Stones](https://www.last.fm/music/The+Rolling+Stones)         | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Deep Purple](https://www.last.fm/music/Deep+Purple)                       | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Fleetwood Mac](https://www.last.fm/music/Fleetwood+Mac)                   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Guns N' Roses](https://www.last.fm/music/Guns+N%27+Roses)                | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 3º [Pato Fu](https://www.last.fm/music/Pato+Fu)                               | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Zемфира](https://www.last.fm/music/Z%D0%B5%D0%BC%D1%84%D0%B8%D1%80%D0%B0) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [David Gilmour](https://www.last.fm/music/David+Gilmour)                   | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Jimi Hendrix](https://www.last.fm/music/Jimi+Hendrix)                     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Dire Straits](https://www.last.fm/music/Dire+Straits)                     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Guns N' Roses](https://www.last.fm/music/Guns+N%27+Roses)                 | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Queen](https://www.last.fm/music/Queen)                                   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Scorpions](https://www.last.fm/music/Scorpions)                          | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 20-05-2023 00:27:01 UTC
+🚀 **Última atualização:** 22-05-2023 12:27:04 UTC
