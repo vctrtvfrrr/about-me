@@ -40,13 +40,13 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 3º [Pato Fu](https://www.last.fm/music/Pato+Fu)                               | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Zемфира](https://www.last.fm/music/Z%D0%B5%D0%BC%D1%84%D0%B8%D1%80%D0%B0) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [David Gilmour](https://www.last.fm/music/David+Gilmour)                   | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Jimi Hendrix](https://www.last.fm/music/Jimi+Hendrix)                     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 6º [Scorpions](https://www.last.fm/music/Scorpions)                           | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 | 7º [Dire Straits](https://www.last.fm/music/Dire+Straits)                     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Guns N' Roses](https://www.last.fm/music/Guns+N%27+Roses)                 | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Queen](https://www.last.fm/music/Queen)                                   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Scorpions](https://www.last.fm/music/Scorpions)                          | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 8º [Fleetwood Mac](https://www.last.fm/music/Fleetwood+Mac)                   | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Guns N' Roses](https://www.last.fm/music/Guns+N%27+Roses)                 | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Kansas](https://www.last.fm/music/Kansas)                                | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 22-05-2023 12:27:04 UTC
+🚀 **Última atualização:** 22-05-2023 15:27:01 UTC
