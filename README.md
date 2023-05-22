@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                                   🎧 Artistas da semana                                    |                      📚 Últimos livros lidos                      |
-|--------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers)                | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [U2](https://www.last.fm/music/U2)                                                      | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Pato Fu](https://www.last.fm/music/Pato+Fu)                                            | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Zемфира](https://www.last.fm/music/Z%D0%B5%D0%BC%D1%84%D0%B8%D1%80%D0%B0)              | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [David Gilmour](https://www.last.fm/music/David+Gilmour)                                | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Dire Straits](https://www.last.fm/music/Dire+Straits)                                  | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Fleetwood Mac](https://www.last.fm/music/Fleetwood+Mac)                                | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Kansas](https://www.last.fm/music/Kansas)                                              | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Scorpions](https://www.last.fm/music/Scorpions)                                        | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Creedence Clearwater Revival](https://www.last.fm/music/Creedence+Clearwater+Revival) | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                                   🎧 Artistas da semana                                   |                      📚 Últimos livros lidos                      |
+|-------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers)               | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [U2](https://www.last.fm/music/U2)                                                     | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Pato Fu](https://www.last.fm/music/Pato+Fu)                                           | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Zемфира](https://www.last.fm/music/Z%D0%B5%D0%BC%D1%84%D0%B8%D1%80%D0%B0)             | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [David Gilmour](https://www.last.fm/music/David+Gilmour)                               | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Dire Straits](https://www.last.fm/music/Dire+Straits)                                 | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Fleetwood Mac](https://www.last.fm/music/Fleetwood+Mac)                               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Kansas](https://www.last.fm/music/Kansas)                                             | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Creedence Clearwater Revival](https://www.last.fm/music/Creedence+Clearwater+Revival) | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Eric Clapton](https://www.last.fm/music/Eric+Clapton)                                | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 22-05-2023 18:27:02 UTC
+🚀 **Última atualização:** 22-05-2023 21:27:02 UTC
