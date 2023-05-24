@@ -37,16 +37,16 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |-------------------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers)   | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [Pato Fu](https://www.last.fm/music/Pato+Fu)                               | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [System of a Down](https://www.last.fm/music/System+of+a+Down)             | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [U2](https://www.last.fm/music/U2)                                         | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Keane](https://www.last.fm/music/Keane)                                   | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Zемфира](https://www.last.fm/music/Z%D0%B5%D0%BC%D1%84%D0%B8%D1%80%D0%B0) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [David Gilmour](https://www.last.fm/music/David+Gilmour)                   | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana)              | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [The Cranberries](https://www.last.fm/music/The+Cranberries)               | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 3º [The Cranberries](https://www.last.fm/music/The+Cranberries)               | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [System of a Down](https://www.last.fm/music/System+of+a+Down)             | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [U2](https://www.last.fm/music/U2)                                         | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Keane](https://www.last.fm/music/Keane)                                   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Zемфира](https://www.last.fm/music/Z%D0%B5%D0%BC%D1%84%D0%B8%D1%80%D0%B0) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [David Gilmour](https://www.last.fm/music/David+Gilmour)                   | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana)              | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 | 10º [Dire Straits](https://www.last.fm/music/Dire+Straits)                    | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 24-05-2023 12:27:02 UTC
+🚀 **Última atualização:** 24-05-2023 15:27:02 UTC
