@@ -36,8 +36,8 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |                             🎧 Artistas da semana                             |                      📚 Últimos livros lidos                      |
 |-------------------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers)   | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Pato Fu](https://www.last.fm/music/Pato+Fu)                               | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [The Cranberries](https://www.last.fm/music/The+Cranberries)               | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 2º [The Cranberries](https://www.last.fm/music/The+Cranberries)               | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Pato Fu](https://www.last.fm/music/Pato+Fu)                               | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [System of a Down](https://www.last.fm/music/System+of+a+Down)             | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [U2](https://www.last.fm/music/U2)                                         | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [Keane](https://www.last.fm/music/Keane)                                   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
@@ -49,4 +49,4 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ---
 
-🚀 **Última atualização:** 24-05-2023 15:27:02 UTC
+🚀 **Última atualização:** 24-05-2023 18:27:02 UTC
