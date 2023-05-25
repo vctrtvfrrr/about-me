@@ -43,10 +43,10 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 6º [David Gilmour](https://www.last.fm/music/David+Gilmour)                   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 | 7º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana)              | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 | 8º [Zемфира](https://www.last.fm/music/Z%D0%B5%D0%BC%D1%84%D0%B8%D1%80%D0%B0) | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Dire Straits](https://www.last.fm/music/Dire+Straits)                     | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Kansas](https://www.last.fm/music/Kansas)                                | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 9º [Coldplay](https://www.last.fm/music/Coldplay)                             | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Radiohead](https://www.last.fm/music/Radiohead)                          | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 25-05-2023 18:27:02 UTC
+🚀 **Última atualização:** 25-05-2023 21:27:02 UTC
