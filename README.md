@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                        🎧 Artistas da semana                         |                      📚 Últimos livros lidos                      |
-|----------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [The Cranberries](https://www.last.fm/music/The+Cranberries)      | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [System of a Down](https://www.last.fm/music/System+of+a+Down)    | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Keane](https://www.last.fm/music/Keane)                          | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana)     | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Coldplay](https://www.last.fm/music/Coldplay)                    | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Radiohead](https://www.last.fm/music/Radiohead)                  | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Green Day](https://www.last.fm/music/Green+Day)                  | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Daft Punk](https://www.last.fm/music/Daft+Punk)                  | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Foster the People](https://www.last.fm/music/Foster+the+People)  | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Loreena McKennitt](https://www.last.fm/music/Loreena+McKennitt) | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                                                                                            🎧 Artistas da semana                                                                                             |                      📚 Últimos livros lidos                      |
+|--------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [The Cranberries](https://www.last.fm/music/The+Cranberries)                                                                                                                                              | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [System of a Down](https://www.last.fm/music/System+of+a+Down)                                                                                                                                            | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Keane](https://www.last.fm/music/Keane)                                                                                                                                                                  | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Coldplay](https://www.last.fm/music/Coldplay)                                                                                                                                                            | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Legião Urbana](https://www.last.fm/music/Legi%C3%A3o+Urbana)                                                                                                                                             | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Radiohead](https://www.last.fm/music/Radiohead)                                                                                                                                                          | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Zeca Pagodinho](https://www.last.fm/music/Zeca+Pagodinho)                                                                                                                                                | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [いっちー&なる(ボンボンアカデミー)](https://www.last.fm/music/%E3%81%84%E3%81%A3%E3%81%A1%E3%83%BC&%E3%81%AA%E3%82%8B(%E3%83%9C%E3%83%B3%E3%83%9C%E3%83%B3%E3%82%A2%E3%82%AB%E3%83%87%E3%83%9F%E3%83%BC)) | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Foster the People](https://www.last.fm/music/Foster+the+People)                                                                                                                                          | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Green Day](https://www.last.fm/music/Green+Day)                                                                                                                                                         | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 29-05-2023 12:27:01 UTC
+🚀 **Última atualização:** 29-05-2023 15:27:01 UTC
