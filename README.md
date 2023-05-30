@@ -40,8 +40,8 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 3º [Coldplay](https://www.last.fm/music/Coldplay)                                                                                                                                                            | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [System of a Down](https://www.last.fm/music/System+of+a+Down)                                                                                                                                            | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Zeca Pagodinho](https://www.last.fm/music/Zeca+Pagodinho)                                                                                                                                                | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Radiohead](https://www.last.fm/music/Radiohead)                                                                                                                                                          | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Stênio Marcius](https://www.last.fm/music/St%C3%AAnio+Marcius)                                                                                                                                           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 6º [Stênio Marcius](https://www.last.fm/music/St%C3%AAnio+Marcius)                                                                                                                                           | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Radiohead](https://www.last.fm/music/Radiohead)                                                                                                                                                          | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 | 8º [いっちー&なる(ボンボンアカデミー)](https://www.last.fm/music/%E3%81%84%E3%81%A3%E3%81%A1%E3%83%BC&%E3%81%AA%E3%82%8B(%E3%83%9C%E3%83%B3%E3%83%9C%E3%83%B3%E3%82%A2%E3%82%AB%E3%83%87%E3%83%9F%E3%83%BC)) | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 | 9º [Foster the People](https://www.last.fm/music/Foster+the+People)                                                                                                                                          | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 | 10º [Green Day](https://www.last.fm/music/Green+Day)                                                                                                                                                         | O imbecil coletivo	–	_Olavo de Carvalho_                            |
@@ -49,4 +49,4 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ---
 
-🚀 **Última atualização:** 29-05-2023 21:27:01 UTC
+🚀 **Última atualização:** 30-05-2023 00:27:02 UTC
