@@ -42,11 +42,11 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 5º [Zeca Pagodinho](https://www.last.fm/music/Zeca+Pagodinho)                                                                                                                                                | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [いっちー&なる(ボンボンアカデミー)](https://www.last.fm/music/%E3%81%84%E3%81%A3%E3%81%A1%E3%83%BC&%E3%81%AA%E3%82%8B(%E3%83%9C%E3%83%B3%E3%83%9C%E3%83%B3%E3%82%A2%E3%82%AB%E3%83%87%E3%83%9F%E3%83%BC)) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 | 7º [Miley Cyrus](https://www.last.fm/music/Miley+Cyrus)                                                                                                                                                      | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [The Neighbourhood](https://www.last.fm/music/The+Neighbourhood)                                                                                                                                          | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Coldplay](https://www.last.fm/music/Coldplay)                                                                                                                                                            | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+|                                                                                                                                                                                                              | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+|                                                                                                                                                                                                              | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 |                                                                                                                                                                                                              | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 02-06-2023 18:27:02 UTC
+🚀 **Última atualização:** 02-06-2023 21:27:01 UTC
