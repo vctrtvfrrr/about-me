@@ -36,17 +36,17 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |                       🎧 Artistas da semana                        |                      📚 Últimos livros lidos                      |
 |--------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Skank](https://www.last.fm/music/Skank)                        | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Stênio Marcius](https://www.last.fm/music/St%C3%AAnio+Marcius) | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Almir Sater](https://www.last.fm/music/Almir+Sater)            | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 2º [Almir Sater](https://www.last.fm/music/Almir+Sater)            | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Stênio Marcius](https://www.last.fm/music/St%C3%AAnio+Marcius) | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Mythos](https://www.last.fm/music/Mythos)                      | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Os Arrais](https://www.last.fm/music/Os+Arrais)                | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [Lesiëm](https://www.last.fm/music/Lesi%C3%ABm)                 | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 | 7º [Mark Knopfler](https://www.last.fm/music/Mark+Knopfler)        | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Foo Fighters](https://www.last.fm/music/Foo+Fighters)          | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+|                                                                    | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 |                                                                    | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 |                                                                    | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 05-06-2023 18:27:01 UTC
+🚀 **Última atualização:** 05-06-2023 21:27:02 UTC
