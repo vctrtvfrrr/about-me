@@ -41,12 +41,12 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 4º [Os Arrais](https://www.last.fm/music/Os+Arrais)                                                                                                                                                          | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Lesiëm](https://www.last.fm/music/Lesi%C3%ABm)                                                                                                                                                           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [Mark Knopfler](https://www.last.fm/music/Mark+Knopfler)                                                                                                                                                  | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Stênio Marcius](https://www.last.fm/music/St%C3%AAnio+Marcius)                                                                                                                                           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [いっちー&なる(ボンボンアカデミー)](https://www.last.fm/music/%E3%81%84%E3%81%A3%E3%81%A1%E3%83%BC&%E3%81%AA%E3%82%8B(%E3%83%9C%E3%83%B3%E3%83%9C%E3%83%B3%E3%82%A2%E3%82%AB%E3%83%87%E3%83%9F%E3%83%BC)) | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 7º [いっちー&なる(ボンボンアカデミー)](https://www.last.fm/music/%E3%81%84%E3%81%A3%E3%81%A1%E3%83%BC&%E3%81%AA%E3%82%8B(%E3%83%9C%E3%83%B3%E3%83%9C%E3%83%B3%E3%82%A2%E3%82%AB%E3%83%87%E3%83%9F%E3%83%BC)) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+|                                                                                                                                                                                                              | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 |                                                                                                                                                                                                              | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 |                                                                                                                                                                                                              | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 06-06-2023 12:27:02 UTC
+🚀 **Última atualização:** 06-06-2023 15:27:02 UTC
