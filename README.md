@@ -42,11 +42,11 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 5º [Facção Central](https://www.last.fm/music/Fac%C3%A7%C3%A3o+Central)                                                                                                                                       | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [Lesiëm](https://www.last.fm/music/Lesi%C3%ABm)                                                                                                                                                            | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 | 7º [Mark Knopfler](https://www.last.fm/music/Mark+Knopfler)                                                                                                                                                   | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Skank](https://www.last.fm/music/Skank)                                                                                                                                                                   | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Sabotage](https://www.last.fm/music/Sabotage)                                                                                                                                                             | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 8º [Sabotage](https://www.last.fm/music/Sabotage)                                                                                                                                                             | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Skank](https://www.last.fm/music/Skank)                                                                                                                                                                   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 | 10º [いっちー&なる(ボンボンアカデミー)](https://www.last.fm/music/%E3%81%84%E3%81%A3%E3%81%A1%E3%83%BC&%E3%81%AA%E3%82%8B(%E3%83%9C%E3%83%B3%E3%83%9C%E3%83%B3%E3%82%A2%E3%82%AB%E3%83%87%E3%83%9F%E3%83%BC)) | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 09-06-2023 00:27:01 UTC
+🚀 **Última atualização:** 09-06-2023 12:27:02 UTC
