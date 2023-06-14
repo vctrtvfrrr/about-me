@@ -40,7 +40,7 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 3º [Dire Straits](https://www.last.fm/music/Dire+Straits)               | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Sabotage](https://www.last.fm/music/Sabotage)                       | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Luiz Caldas](https://www.last.fm/music/Luiz+Caldas)                 | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-|                                                                         | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 6º [Luiz Gonzaga](https://www.last.fm/music/Luiz+Gonzaga)               | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 |                                                                         | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 |                                                                         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 |                                                                         | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
@@ -49,4 +49,4 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ---
 
-🚀 **Última atualização:** 13-06-2023 21:27:01 UTC
+🚀 **Última atualização:** 14-06-2023 00:27:02 UTC
