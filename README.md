@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                          🎧 Artistas da semana                          |                      📚 Últimos livros lidos                      |
-|-------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Facção Central](https://www.last.fm/music/Fac%C3%A7%C3%A3o+Central) | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Racionais MC's](https://www.last.fm/music/Racionais+MC%27s)         | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Dire Straits](https://www.last.fm/music/Dire+Straits)               | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Sabotage](https://www.last.fm/music/Sabotage)                       | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Luiz Caldas](https://www.last.fm/music/Luiz+Caldas)                 | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Luiz Gonzaga](https://www.last.fm/music/Luiz+Gonzaga)               | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-|                                                                         | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-|                                                                         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-|                                                                         | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-|                                                                         | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                      🎧 Artistas da semana                      |                      📚 Últimos livros lidos                      |
+|-----------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Racionais MC's](https://www.last.fm/music/Racionais+MC%27s) | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Dire Straits](https://www.last.fm/music/Dire+Straits)       | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Sabotage](https://www.last.fm/music/Sabotage)               | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Luiz Caldas](https://www.last.fm/music/Luiz+Caldas)         | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Luiz Gonzaga](https://www.last.fm/music/Luiz+Gonzaga)       | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+|                                                                 | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+|                                                                 | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+|                                                                 | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+|                                                                 | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+|                                                                 | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 14-06-2023 00:27:02 UTC
+🚀 **Última atualização:** 14-06-2023 03:27:02 UTC
