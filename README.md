@@ -37,9 +37,9 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |-----------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [C418](https://www.last.fm/music/C418)                 | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [Dire Straits](https://www.last.fm/music/Dire+Straits) | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Luiz Caldas](https://www.last.fm/music/Luiz+Caldas)   | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Luiz Gonzaga](https://www.last.fm/music/Luiz+Gonzaga) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-|                                                           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 3º [ABBA](https://www.last.fm/music/ABBA)                 | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Luiz Caldas](https://www.last.fm/music/Luiz+Caldas)   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Luiz Gonzaga](https://www.last.fm/music/Luiz+Gonzaga) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 |                                                           | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 |                                                           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 |                                                           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
@@ -49,4 +49,4 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ---
 
-🚀 **Última atualização:** 15-06-2023 12:27:02 UTC
+🚀 **Última atualização:** 15-06-2023 15:27:01 UTC
