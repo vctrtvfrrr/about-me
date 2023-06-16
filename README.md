@@ -36,17 +36,17 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |                      🎧 Artistas da semana                      |                      📚 Últimos livros lidos                      |
 |-----------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [C418](https://www.last.fm/music/C418)                       | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Dire Straits](https://www.last.fm/music/Dire+Straits)       | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Racionais MC's](https://www.last.fm/music/Racionais+MC%27s) | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 2º [Racionais MC's](https://www.last.fm/music/Racionais+MC%27s) | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Dire Straits](https://www.last.fm/music/Dire+Straits)       | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [ABBA](https://www.last.fm/music/ABBA)                       | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Lena Raine](https://www.last.fm/music/Lena+Raine)           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Luiz Caldas](https://www.last.fm/music/Luiz+Caldas)         | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Luiz Gonzaga](https://www.last.fm/music/Luiz+Gonzaga)       | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-|                                                                 | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 5º [Cassiano](https://www.last.fm/music/Cassiano)               | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Lena Raine](https://www.last.fm/music/Lena+Raine)           | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Luiz Caldas](https://www.last.fm/music/Luiz+Caldas)         | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Luiz Gonzaga](https://www.last.fm/music/Luiz+Gonzaga)       | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 |                                                                 | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 |                                                                 | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 15-06-2023 21:27:02 UTC
+🚀 **Última atualização:** 16-06-2023 00:27:01 UTC
