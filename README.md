@@ -37,16 +37,16 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |-------------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [C418](https://www.last.fm/music/C418)                               | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [Racionais MC's](https://www.last.fm/music/Racionais+MC%27s)         | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Dire Straits](https://www.last.fm/music/Dire+Straits)               | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [ABBA](https://www.last.fm/music/ABBA)                               | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Cassiano](https://www.last.fm/music/Cassiano)                       | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Facção Central](https://www.last.fm/music/Fac%C3%A7%C3%A3o+Central) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Lena Raine](https://www.last.fm/music/Lena+Raine)                   | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Luiz Caldas](https://www.last.fm/music/Luiz+Caldas)                 | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Luiz Gonzaga](https://www.last.fm/music/Luiz+Gonzaga)               | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-|                                                                         | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 3º [Facção Central](https://www.last.fm/music/Fac%C3%A7%C3%A3o+Central) | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Radiohead](https://www.last.fm/music/Radiohead)                     | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Dire Straits](https://www.last.fm/music/Dire+Straits)               | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [ABBA](https://www.last.fm/music/ABBA)                               | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Cassiano](https://www.last.fm/music/Cassiano)                       | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Lena Raine](https://www.last.fm/music/Lena+Raine)                   | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Luiz Caldas](https://www.last.fm/music/Luiz+Caldas)                 | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Luiz Gonzaga](https://www.last.fm/music/Luiz+Gonzaga)              | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 16-06-2023 15:27:02 UTC
+🚀 **Última atualização:** 16-06-2023 18:27:02 UTC
