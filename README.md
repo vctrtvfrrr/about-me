@@ -40,8 +40,8 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 3º [Racionais MC's](https://www.last.fm/music/Racionais+MC%27s)         | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [The Weeknd](https://www.last.fm/music/The+Weeknd)                   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Facção Central](https://www.last.fm/music/Fac%C3%A7%C3%A3o+Central) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Dire Straits](https://www.last.fm/music/Dire+Straits)               | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [ABBA](https://www.last.fm/music/ABBA)                               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 6º [ABBA](https://www.last.fm/music/ABBA)                               | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Bezerra da Silva](https://www.last.fm/music/Bezerra+da+Silva)       | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 | 8º [Cassiano](https://www.last.fm/music/Cassiano)                       | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 | 9º [Lena Raine](https://www.last.fm/music/Lena+Raine)                   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 | 10º [Luiz Caldas](https://www.last.fm/music/Luiz+Caldas)                | O imbecil coletivo	–	_Olavo de Carvalho_                            |
@@ -49,4 +49,4 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ---
 
-🚀 **Última atualização:** 17-06-2023 00:27:01 UTC
+🚀 **Última atualização:** 19-06-2023 12:27:02 UTC
