@@ -40,13 +40,13 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 3º [Radiohead](https://www.last.fm/music/Radiohead)                     | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Racionais MC's](https://www.last.fm/music/Racionais+MC%27s)         | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [The Cardigans](https://www.last.fm/music/The+Cardigans)             | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Facção Central](https://www.last.fm/music/Fac%C3%A7%C3%A3o+Central) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Nickelback](https://www.last.fm/music/Nickelback)                   | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [ABBA](https://www.last.fm/music/ABBA)                               | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Bezerra da Silva](https://www.last.fm/music/Bezerra+da+Silva)       | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Cassiano](https://www.last.fm/music/Cassiano)                      | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 6º [Nickelback](https://www.last.fm/music/Nickelback)                   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Facção Central](https://www.last.fm/music/Fac%C3%A7%C3%A3o+Central) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Ne-Yo](https://www.last.fm/music/Ne-Yo)                             | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [ABBA](https://www.last.fm/music/ABBA)                               | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Bezerra da Silva](https://www.last.fm/music/Bezerra+da+Silva)      | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 19-06-2023 15:27:02 UTC
+🚀 **Última atualização:** 19-06-2023 18:27:01 UTC
