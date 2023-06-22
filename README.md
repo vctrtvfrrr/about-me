@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                          🎧 Artistas da semana                          |                      📚 Últimos livros lidos                      |
-|-------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [The Weeknd](https://www.last.fm/music/The+Weeknd)                   | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Radiohead](https://www.last.fm/music/Radiohead)                     | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Racionais MC's](https://www.last.fm/music/Racionais+MC%27s)         | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [The Cardigans](https://www.last.fm/music/The+Cardigans)             | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Nickelback](https://www.last.fm/music/Nickelback)                   | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Tim Maia](https://www.last.fm/music/Tim+Maia)                       | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [C418](https://www.last.fm/music/C418)                               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Facção Central](https://www.last.fm/music/Fac%C3%A7%C3%A3o+Central) | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Ne-Yo](https://www.last.fm/music/Ne-Yo)                             | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [ABBA](https://www.last.fm/music/ABBA)                              | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                          🎧 Artistas da semana                           |                      📚 Últimos livros lidos                      |
+|--------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [The Weeknd](https://www.last.fm/music/The+Weeknd)                    | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Radiohead](https://www.last.fm/music/Radiohead)                      | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [The Cardigans](https://www.last.fm/music/The+Cardigans)              | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Nickelback](https://www.last.fm/music/Nickelback)                    | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Racionais MC's](https://www.last.fm/music/Racionais+MC%27s)          | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Tim Maia](https://www.last.fm/music/Tim+Maia)                        | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Guns N' Roses](https://www.last.fm/music/Guns+N%27+Roses)            | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Ne-Yo](https://www.last.fm/music/Ne-Yo)                              | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [C418](https://www.last.fm/music/C418)                                | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Facção Central](https://www.last.fm/music/Fac%C3%A7%C3%A3o+Central) | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 22-06-2023 12:27:02 UTC
+🚀 **Última atualização:** 22-06-2023 15:27:02 UTC
