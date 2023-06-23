@@ -41,12 +41,12 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 4º [The Cardigans](https://www.last.fm/music/The+Cardigans)             | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Nickelback](https://www.last.fm/music/Nickelback)                   | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [Tim Maia](https://www.last.fm/music/Tim+Maia)                       | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Racionais MC's](https://www.last.fm/music/Racionais+MC%27s)         | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Ne-Yo](https://www.last.fm/music/Ne-Yo)                             | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Facção Central](https://www.last.fm/music/Fac%C3%A7%C3%A3o+Central) | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Avril Lavigne](https://www.last.fm/music/Avril+Lavigne)            | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 7º [Ne-Yo](https://www.last.fm/music/Ne-Yo)                             | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Facção Central](https://www.last.fm/music/Fac%C3%A7%C3%A3o+Central) | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Avril Lavigne](https://www.last.fm/music/Avril+Lavigne)             | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Racionais MC's](https://www.last.fm/music/Racionais+MC%27s)        | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 22-06-2023 21:27:02 UTC
+🚀 **Última atualização:** 23-06-2023 00:27:01 UTC
