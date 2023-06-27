@@ -37,11 +37,11 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |---------------------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Guns N' Roses](https://www.last.fm/music/Guns+N%27+Roses)                   | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [Avril Lavigne](https://www.last.fm/music/Avril+Lavigne)                     | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Os Paralamas Do Sucesso](https://www.last.fm/music/Os+Paralamas+Do+Sucesso) | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Titãs](https://www.last.fm/music/Tit%C3%A3s)                                | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Drowning Pool](https://www.last.fm/music/Drowning+Pool)                     | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-|                                                                                 | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-|                                                                                 | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 3º [Titãs](https://www.last.fm/music/Tit%C3%A3s)                                | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Os Paralamas Do Sucesso](https://www.last.fm/music/Os+Paralamas+Do+Sucesso) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Los Hermanos](https://www.last.fm/music/Los+Hermanos)                       | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab)              | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Drowning Pool](https://www.last.fm/music/Drowning+Pool)                     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 |                                                                                 | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 |                                                                                 | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 |                                                                                 | O imbecil coletivo	–	_Olavo de Carvalho_                            |
@@ -49,4 +49,4 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ---
 
-🚀 **Última atualização:** 27-06-2023 12:27:02 UTC
+🚀 **Última atualização:** 27-06-2023 15:27:02 UTC
