@@ -43,10 +43,10 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 6º [Ventania](https://www.last.fm/music/Ventania)                               | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 | 7º [Little Joy](https://www.last.fm/music/Little+Joy)                           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 | 8º [Erik Satie](https://www.last.fm/music/Erik+Satie)                           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab)              | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Drowning Pool](https://www.last.fm/music/Drowning+Pool)                    | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 9º [Steven Wilson](https://www.last.fm/music/Steven+Wilson)                     | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab)             | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 28-06-2023 15:27:01 UTC
+🚀 **Última atualização:** 28-06-2023 18:27:02 UTC
