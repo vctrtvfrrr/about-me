@@ -40,13 +40,13 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 3º [Titãs](https://www.last.fm/music/Tit%C3%A3s)                                | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Os Paralamas Do Sucesso](https://www.last.fm/music/Os+Paralamas+Do+Sucesso) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Ventania](https://www.last.fm/music/Ventania)                               | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Guns N' Roses](https://www.last.fm/music/Guns+N%27+Roses)                   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Little Joy](https://www.last.fm/music/Little+Joy)                           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Steven Wilson](https://www.last.fm/music/Steven+Wilson)                     | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Erik Satie](https://www.last.fm/music/Erik+Satie)                           | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 6º [Little Joy](https://www.last.fm/music/Little+Joy)                           | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Steven Wilson](https://www.last.fm/music/Steven+Wilson)                     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Erik Satie](https://www.last.fm/music/Erik+Satie)                           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Guns N' Roses](https://www.last.fm/music/Guns+N%27+Roses)                   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 | 10º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab)             | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 29-06-2023 15:27:02 UTC
+🚀 **Última atualização:** 29-06-2023 18:27:02 UTC
