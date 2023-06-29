@@ -36,17 +36,17 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |                              🎧 Artistas da semana                              |                      📚 Últimos livros lidos                      |
 |---------------------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Los Hermanos](https://www.last.fm/music/Los+Hermanos)                       | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Avril Lavigne](https://www.last.fm/music/Avril+Lavigne)                     | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Titãs](https://www.last.fm/music/Tit%C3%A3s)                                | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Os Paralamas Do Sucesso](https://www.last.fm/music/Os+Paralamas+Do+Sucesso) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Ventania](https://www.last.fm/music/Ventania)                               | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Little Joy](https://www.last.fm/music/Little+Joy)                           | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Steven Wilson](https://www.last.fm/music/Steven+Wilson)                     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Erik Satie](https://www.last.fm/music/Erik+Satie)                           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Guns N' Roses](https://www.last.fm/music/Guns+N%27+Roses)                   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab)             | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 2º [Titãs](https://www.last.fm/music/Tit%C3%A3s)                                | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Os Paralamas Do Sucesso](https://www.last.fm/music/Os+Paralamas+Do+Sucesso) | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Ventania](https://www.last.fm/music/Ventania)                               | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Little Joy](https://www.last.fm/music/Little+Joy)                           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Steven Wilson](https://www.last.fm/music/Steven+Wilson)                     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Erik Satie](https://www.last.fm/music/Erik+Satie)                           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Avril Lavigne](https://www.last.fm/music/Avril+Lavigne)                     | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab)              | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Drowning Pool](https://www.last.fm/music/Drowning+Pool)                    | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 29-06-2023 18:27:02 UTC
+🚀 **Última atualização:** 29-06-2023 21:27:01 UTC
