@@ -44,9 +44,9 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 7º [Erik Satie](https://www.last.fm/music/Erik+Satie)                           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 | 8º [Avril Lavigne](https://www.last.fm/music/Avril+Lavigne)                     | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 | 9º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab)              | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Drowning Pool](https://www.last.fm/music/Drowning+Pool)                    | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                                                                                 | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 30-06-2023 00:27:01 UTC
+🚀 **Última atualização:** 30-06-2023 12:27:02 UTC
