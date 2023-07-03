@@ -39,14 +39,14 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 2º [Titãs](https://www.last.fm/music/Tit%C3%A3s)                                | A Arte da Guerra	–	_Sun Tzu_                                        |
 | 3º [Os Paralamas Do Sucesso](https://www.last.fm/music/Os+Paralamas+Do+Sucesso) | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Ventania](https://www.last.fm/music/Ventania)                               | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Little Joy](https://www.last.fm/music/Little+Joy)                           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Steven Wilson](https://www.last.fm/music/Steven+Wilson)                     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Erik Satie](https://www.last.fm/music/Erik+Satie)                           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab)              | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-|                                                                                 | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-|                                                                                 | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 5º [Steven Wilson](https://www.last.fm/music/Steven+Wilson)                     | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Porcupine Tree](https://www.last.fm/music/Porcupine+Tree)                   | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [The Smiths](https://www.last.fm/music/The+Smiths)                           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Little Joy](https://www.last.fm/music/Little+Joy)                           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Erik Satie](https://www.last.fm/music/Erik+Satie)                           | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Opeth](https://www.last.fm/music/Opeth)                                    | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 03-07-2023 12:27:02 UTC
+🚀 **Última atualização:** 03-07-2023 15:27:02 UTC
