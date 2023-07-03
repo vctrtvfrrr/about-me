@@ -42,11 +42,11 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 5º [Little Joy](https://www.last.fm/music/Little+Joy)                           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [Steven Wilson](https://www.last.fm/music/Steven+Wilson)                     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 | 7º [Erik Satie](https://www.last.fm/music/Erik+Satie)                           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Avril Lavigne](https://www.last.fm/music/Avril+Lavigne)                     | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab)              | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 8º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab)              | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+|                                                                                 | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 |                                                                                 | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 01-07-2023 00:27:02 UTC
+🚀 **Última atualização:** 03-07-2023 03:27:02 UTC
