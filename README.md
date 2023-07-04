@@ -37,16 +37,16 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |---------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [The Smiths](https://www.last.fm/music/The+Smiths)               | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [Los Hermanos](https://www.last.fm/music/Los+Hermanos)           | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Titãs](https://www.last.fm/music/Tit%C3%A3s)                    | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Ventania](https://www.last.fm/music/Ventania)                   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Steven Wilson](https://www.last.fm/music/Steven+Wilson)         | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Porcupine Tree](https://www.last.fm/music/Porcupine+Tree)       | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Little Joy](https://www.last.fm/music/Little+Joy)               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Erik Satie](https://www.last.fm/music/Erik+Satie)               | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 3º [Ventania](https://www.last.fm/music/Ventania)                   | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Steven Wilson](https://www.last.fm/music/Steven+Wilson)         | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Porcupine Tree](https://www.last.fm/music/Porcupine+Tree)       | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Little Joy](https://www.last.fm/music/Little+Joy)               | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Erik Satie](https://www.last.fm/music/Erik+Satie)               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Titãs](https://www.last.fm/music/Tit%C3%A3s)                    | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 | 9º [Opeth](https://www.last.fm/music/Opeth)                         | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 | 10º [Rogério Skylab](https://www.last.fm/music/Rog%C3%A9rio+Skylab) | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 04-07-2023 09:27:02 UTC
+🚀 **Última atualização:** 04-07-2023 12:27:02 UTC
