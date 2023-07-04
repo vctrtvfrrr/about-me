@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                     🎧 Artistas da semana                     |                      📚 Últimos livros lidos                      |
-|---------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [The Smiths](https://www.last.fm/music/The+Smiths)         | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Los Hermanos](https://www.last.fm/music/Los+Hermanos)     | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Ventania](https://www.last.fm/music/Ventania)             | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Steven Wilson](https://www.last.fm/music/Steven+Wilson)   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Porcupine Tree](https://www.last.fm/music/Porcupine+Tree) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Little Joy](https://www.last.fm/music/Little+Joy)         | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Erik Satie](https://www.last.fm/music/Erik+Satie)         | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Coldplay](https://www.last.fm/music/Coldplay)             | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Massive Attack](https://www.last.fm/music/Massive+Attack) | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [John Mayer](https://www.last.fm/music/John+Mayer)        | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                     🎧 Artistas da semana                      |                      📚 Últimos livros lidos                      |
+|----------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [The Smiths](https://www.last.fm/music/The+Smiths)          | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Ventania](https://www.last.fm/music/Ventania)              | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Steven Wilson](https://www.last.fm/music/Steven+Wilson)    | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Porcupine Tree](https://www.last.fm/music/Porcupine+Tree)  | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Little Joy](https://www.last.fm/music/Little+Joy)          | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Los Hermanos](https://www.last.fm/music/Los+Hermanos)      | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Erik Satie](https://www.last.fm/music/Erik+Satie)          | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Coldplay](https://www.last.fm/music/Coldplay)              | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [John Mayer](https://www.last.fm/music/John+Mayer)          | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Massive Attack](https://www.last.fm/music/Massive+Attack) | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 04-07-2023 15:27:03 UTC
+🚀 **Última atualização:** 04-07-2023 18:27:01 UTC
