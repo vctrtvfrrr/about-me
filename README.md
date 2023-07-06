@@ -38,10 +38,10 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 1º [The Smiths](https://www.last.fm/music/The+Smiths)         | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [Porcupine Tree](https://www.last.fm/music/Porcupine+Tree) | A Arte da Guerra	–	_Sun Tzu_                                        |
 | 3º [Coldplay](https://www.last.fm/music/Coldplay)             | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Jack Johnson](https://www.last.fm/music/Jack+Johnson)     | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [John Mayer](https://www.last.fm/music/John+Mayer)         | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Massive Attack](https://www.last.fm/music/Massive+Attack) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Gorillaz](https://www.last.fm/music/Gorillaz)             | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 4º [John Mayer](https://www.last.fm/music/John+Mayer)         | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Gorillaz](https://www.last.fm/music/Gorillaz)             | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Jack Johnson](https://www.last.fm/music/Jack+Johnson)     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Massive Attack](https://www.last.fm/music/Massive+Attack) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 | 8º [Opeth](https://www.last.fm/music/Opeth)                   | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 | 9º [Steven Wilson](https://www.last.fm/music/Steven+Wilson)   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 | 10º [C418](https://www.last.fm/music/C418)                    | O imbecil coletivo	–	_Olavo de Carvalho_                            |
@@ -49,4 +49,4 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ---
 
-🚀 **Última atualização:** 06-07-2023 00:27:02 UTC
+🚀 **Última atualização:** 06-07-2023 12:27:02 UTC
