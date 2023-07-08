@@ -40,13 +40,13 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 3º [Foo Fighters](https://www.last.fm/music/Foo+Fighters)     | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Gorillaz](https://www.last.fm/music/Gorillaz)             | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [John Mayer](https://www.last.fm/music/John+Mayer)         | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Jack Johnson](https://www.last.fm/music/Jack+Johnson)     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Massive Attack](https://www.last.fm/music/Massive+Attack) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Radiohead](https://www.last.fm/music/Radiohead)           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 6º [Massive Attack](https://www.last.fm/music/Massive+Attack) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Radiohead](https://www.last.fm/music/Radiohead)           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Jack Johnson](https://www.last.fm/music/Jack+Johnson)     | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 | 9º [Khaled](https://www.last.fm/music/Khaled)                 | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 | 10º [Stereophonics](https://www.last.fm/music/Stereophonics)  | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 07-07-2023 21:27:01 UTC
+🚀 **Última atualização:** 08-07-2023 00:27:02 UTC
