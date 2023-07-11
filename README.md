@@ -41,12 +41,12 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 4º [Khaled](https://www.last.fm/music/Khaled)                 | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
 | 5º [Gorillaz](https://www.last.fm/music/Gorillaz)             | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [Guns N' Roses](https://www.last.fm/music/Guns+N%27+Roses) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [John Mayer](https://www.last.fm/music/John+Mayer)         | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Pearl Jam](https://www.last.fm/music/Pearl+Jam)           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [The Smiths](https://www.last.fm/music/The+Smiths)         | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [The Weeknd](https://www.last.fm/music/The+Weeknd)        | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 7º [Pearl Jam](https://www.last.fm/music/Pearl+Jam)           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [The Smiths](https://www.last.fm/music/The+Smiths)         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [The Weeknd](https://www.last.fm/music/The+Weeknd)         | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Anathema](https://www.last.fm/music/Anathema)            | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 11-07-2023 15:27:02 UTC
+🚀 **Última atualização:** 11-07-2023 18:27:02 UTC
