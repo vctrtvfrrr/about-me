@@ -36,17 +36,17 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |                     🎧 Artistas da semana                     |                      📚 Últimos livros lidos                      |
 |---------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Radiohead](https://www.last.fm/music/Radiohead)           | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Foo Fighters](https://www.last.fm/music/Foo+Fighters)     | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Coldplay](https://www.last.fm/music/Coldplay)             | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Khaled](https://www.last.fm/music/Khaled)                 | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Gorillaz](https://www.last.fm/music/Gorillaz)             | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Guns N' Roses](https://www.last.fm/music/Guns+N%27+Roses) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Pearl Jam](https://www.last.fm/music/Pearl+Jam)           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [The Smiths](https://www.last.fm/music/The+Smiths)         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 2º [The Smiths](https://www.last.fm/music/The+Smiths)         | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Foo Fighters](https://www.last.fm/music/Foo+Fighters)     | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Coldplay](https://www.last.fm/music/Coldplay)             | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Khaled](https://www.last.fm/music/Khaled)                 | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Gorillaz](https://www.last.fm/music/Gorillaz)             | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Guns N' Roses](https://www.last.fm/music/Guns+N%27+Roses) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Pearl Jam](https://www.last.fm/music/Pearl+Jam)           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 | 9º [The Weeknd](https://www.last.fm/music/The+Weeknd)         | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 | 10º [Anathema](https://www.last.fm/music/Anathema)            | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 12-07-2023 12:27:02 UTC
+🚀 **Última atualização:** 12-07-2023 15:27:02 UTC
