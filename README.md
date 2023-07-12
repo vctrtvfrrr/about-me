@@ -43,10 +43,10 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 6º [Gorillaz](https://www.last.fm/music/Gorillaz)             | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 | 7º [Guns N' Roses](https://www.last.fm/music/Guns+N%27+Roses) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 | 8º [Pearl Jam](https://www.last.fm/music/Pearl+Jam)           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [The Weeknd](https://www.last.fm/music/The+Weeknd)         | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Anathema](https://www.last.fm/music/Anathema)            | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 9º [The Cardigans](https://www.last.fm/music/The+Cardigans)   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [The Weeknd](https://www.last.fm/music/The+Weeknd)        | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 12-07-2023 15:27:02 UTC
+🚀 **Última atualização:** 12-07-2023 18:27:02 UTC
