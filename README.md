@@ -37,16 +37,16 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |---------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Radiohead](https://www.last.fm/music/Radiohead)           | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [The Smiths](https://www.last.fm/music/The+Smiths)         | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Foo Fighters](https://www.last.fm/music/Foo+Fighters)     | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Khaled](https://www.last.fm/music/Khaled)                 | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Coldplay](https://www.last.fm/music/Coldplay)             | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Guns N' Roses](https://www.last.fm/music/Guns+N%27+Roses) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Pearl Jam](https://www.last.fm/music/Pearl+Jam)           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [The Cardigans](https://www.last.fm/music/The+Cardigans)   | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 3º [The Cardigans](https://www.last.fm/music/The+Cardigans)   | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Foo Fighters](https://www.last.fm/music/Foo+Fighters)     | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Khaled](https://www.last.fm/music/Khaled)                 | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Coldplay](https://www.last.fm/music/Coldplay)             | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Guns N' Roses](https://www.last.fm/music/Guns+N%27+Roses) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Pearl Jam](https://www.last.fm/music/Pearl+Jam)           | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 | 9º [Anathema](https://www.last.fm/music/Anathema)             | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 | 10º [Avril Lavigne](https://www.last.fm/music/Avril+Lavigne)  | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 13-07-2023 21:27:01 UTC
+🚀 **Última atualização:** 14-07-2023 00:27:01 UTC
