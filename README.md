@@ -44,9 +44,9 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 7º [Racionais MC's](https://www.last.fm/music/Racionais+MC%27s)             | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 | 8º [The Cranberries](https://www.last.fm/music/The+Cranberries)             | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 | 9º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers) | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Foo Fighters](https://www.last.fm/music/Foo+Fighters)                  | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 10º [Jack Johnson](https://www.last.fm/music/Jack+Johnson)                  | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 19-07-2023 12:27:01 UTC
+🚀 **Última atualização:** 19-07-2023 15:27:02 UTC
