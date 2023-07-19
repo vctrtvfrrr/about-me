@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                      🎧 Artistas da semana                      |                      📚 Últimos livros lidos                      |
-|-----------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Radiohead](https://www.last.fm/music/Radiohead)             | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [The Smiths](https://www.last.fm/music/The+Smiths)           | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [The Cardigans](https://www.last.fm/music/The+Cardigans)     | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Keane](https://www.last.fm/music/Keane)                     | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [U2](https://www.last.fm/music/U2)                           | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Racionais MC's](https://www.last.fm/music/Racionais+MC%27s) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [The Cranberries](https://www.last.fm/music/The+Cranberries) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Coldplay](https://www.last.fm/music/Coldplay)               | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Jack Johnson](https://www.last.fm/music/Jack+Johnson)       | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Anathema](https://www.last.fm/music/Anathema)              | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                            🎧 Artistas da semana                            |                      📚 Últimos livros lidos                      |
+|-----------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Radiohead](https://www.last.fm/music/Radiohead)                         | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [The Smiths](https://www.last.fm/music/The+Smiths)                       | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [U2](https://www.last.fm/music/U2)                                       | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Coldplay](https://www.last.fm/music/Coldplay)                           | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Keane](https://www.last.fm/music/Keane)                                 | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [The Cardigans](https://www.last.fm/music/The+Cardigans)                 | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Racionais MC's](https://www.last.fm/music/Racionais+MC%27s)             | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [The Cranberries](https://www.last.fm/music/The+Cranberries)             | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers) | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Foo Fighters](https://www.last.fm/music/Foo+Fighters)                  | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 19-07-2023 03:27:01 UTC
+🚀 **Última atualização:** 19-07-2023 06:27:02 UTC
