@@ -42,11 +42,11 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 5º [The Cardigans](https://www.last.fm/music/The+Cardigans)                 | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [Racionais MC's](https://www.last.fm/music/Racionais+MC%27s)             | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 | 7º [The Cranberries](https://www.last.fm/music/The+Cranberries)             | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [The Smiths](https://www.last.fm/music/The+Smiths)                       | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers) | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [The Strokes](https://www.last.fm/music/The+Strokes)                    | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 8º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers) | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [The Strokes](https://www.last.fm/music/The+Strokes)                     | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Jack Johnson](https://www.last.fm/music/Jack+Johnson)                  | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 20-07-2023 00:27:02 UTC
+🚀 **Última atualização:** 20-07-2023 03:27:01 UTC
