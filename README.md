@@ -39,14 +39,14 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 2º [Coldplay](https://www.last.fm/music/Coldplay)                           | A Arte da Guerra	–	_Sun Tzu_                                        |
 | 3º [Keane](https://www.last.fm/music/Keane)                                 | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Muse](https://www.last.fm/music/Muse)                                   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [The Strokes](https://www.last.fm/music/The+Strokes)                     | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [The White Stripes](https://www.last.fm/music/The+White+Stripes)         | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Arctic Monkeys](https://www.last.fm/music/Arctic+Monkeys)               | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Audioslave](https://www.last.fm/music/Audioslave)                       | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers) | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 5º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [The Strokes](https://www.last.fm/music/The+Strokes)                     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [The White Stripes](https://www.last.fm/music/The+White+Stripes)         | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Arctic Monkeys](https://www.last.fm/music/Arctic+Monkeys)               | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Audioslave](https://www.last.fm/music/Audioslave)                       | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
 | 10º [The Smiths](https://www.last.fm/music/The+Smiths)                      | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 21-07-2023 18:27:02 UTC
+🚀 **Última atualização:** 21-07-2023 21:27:01 UTC
