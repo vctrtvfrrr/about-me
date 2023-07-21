@@ -39,14 +39,14 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 2º [Coldplay](https://www.last.fm/music/Coldplay)                           | A Arte da Guerra	–	_Sun Tzu_                                        |
 | 3º [U2](https://www.last.fm/music/U2)                                       | O Príncipe	–	_Nicolau Maquiavel_                                    |
 | 4º [Keane](https://www.last.fm/music/Keane)                                 | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [The Cardigans](https://www.last.fm/music/The+Cardigans)                 | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Racionais MC's](https://www.last.fm/music/Racionais+MC%27s)             | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 5º [Racionais MC's](https://www.last.fm/music/Racionais+MC%27s)             | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 | 7º [The Cranberries](https://www.last.fm/music/The+Cranberries)             | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers) | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [The Strokes](https://www.last.fm/music/The+Strokes)                     | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Jack Johnson](https://www.last.fm/music/Jack+Johnson)                  | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 8º [The Strokes](https://www.last.fm/music/The+Strokes)                     | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Muse](https://www.last.fm/music/Muse)                                   | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [The Cardigans](https://www.last.fm/music/The+Cardigans)                | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 20-07-2023 21:27:03 UTC
+🚀 **Última atualização:** 21-07-2023 00:27:01 UTC
