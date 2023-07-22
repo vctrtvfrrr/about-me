@@ -37,16 +37,16 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |-----------------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [Radiohead](https://www.last.fm/music/Radiohead)                         | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [Coldplay](https://www.last.fm/music/Coldplay)                           | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Keane](https://www.last.fm/music/Keane)                                 | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Muse](https://www.last.fm/music/Muse)                                   | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers) | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [The Strokes](https://www.last.fm/music/The+Strokes)                     | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [The White Stripes](https://www.last.fm/music/The+White+Stripes)         | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Arctic Monkeys](https://www.last.fm/music/Arctic+Monkeys)               | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Audioslave](https://www.last.fm/music/Audioslave)                       | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [The Smiths](https://www.last.fm/music/The+Smiths)                      | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 3º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers) | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Keane](https://www.last.fm/music/Keane)                                 | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Muse](https://www.last.fm/music/Muse)                                   | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [Pearl Jam](https://www.last.fm/music/Pearl+Jam)                         | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [The Strokes](https://www.last.fm/music/The+Strokes)                     | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [The White Stripes](https://www.last.fm/music/The+White+Stripes)         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Arctic Monkeys](https://www.last.fm/music/Arctic+Monkeys)               | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Audioslave](https://www.last.fm/music/Audioslave)                      | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 21-07-2023 21:27:01 UTC
+🚀 **Última atualização:** 22-07-2023 00:27:02 UTC
