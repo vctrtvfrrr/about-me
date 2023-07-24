@@ -44,9 +44,9 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 7º [Interpol](https://www.last.fm/music/Interpol)                           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 | 8º [Pearl Jam](https://www.last.fm/music/Pearl+Jam)                         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
 | 9º [The Strokes](https://www.last.fm/music/The+Strokes)                     | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Keane](https://www.last.fm/music/Keane)                                | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 10º [Stereophonics](https://www.last.fm/music/Stereophonics)                | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 24-07-2023 18:27:02 UTC
+🚀 **Última atualização:** 24-07-2023 21:27:01 UTC
