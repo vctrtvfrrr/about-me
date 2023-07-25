@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                            🎧 Artistas da semana                            |                      📚 Últimos livros lidos                      |
-|-----------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [Radiohead](https://www.last.fm/music/Radiohead)                         | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Coldplay](https://www.last.fm/music/Coldplay)                           | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [Kings of Leon](https://www.last.fm/music/Kings+of+Leon)                 | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Gorillaz](https://www.last.fm/music/Gorillaz)                           | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [My Chemical Romance](https://www.last.fm/music/My+Chemical+Romance)     | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Interpol](https://www.last.fm/music/Interpol)                           | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Pearl Jam](https://www.last.fm/music/Pearl+Jam)                         | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [The Strokes](https://www.last.fm/music/The+Strokes)                     | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Stereophonics](https://www.last.fm/music/Stereophonics)                | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                                             🎧 Artistas da semana                                              |                      📚 Últimos livros lidos                      |
+|----------------------------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [いきものがかり](https://www.last.fm/music/%E3%81%84%E3%81%8D%E3%82%82%E3%81%AE%E3%81%8C%E3%81%8B%E3%82%8A) | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [Radiohead](https://www.last.fm/music/Radiohead)                                                            | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [中川翔子](https://www.last.fm/music/%E4%B8%AD%E5%B7%9D%E7%BF%94%E5%AD%90)                                  | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Kings of Leon](https://www.last.fm/music/Kings+of+Leon)                                                    | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Gorillaz](https://www.last.fm/music/Gorillaz)                                                              | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [My Chemical Romance](https://www.last.fm/music/My+Chemical+Romance)                                        | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [Red Hot Chili Peppers](https://www.last.fm/music/Red+Hot+Chili+Peppers)                                    | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [宇宙ネコ子](https://www.last.fm/music/%E5%AE%87%E5%AE%99%E3%83%8D%E3%82%B3%E5%AD%90)                       | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [林原めぐみ](https://www.last.fm/music/%E6%9E%97%E5%8E%9F%E3%82%81%E3%81%90%E3%81%BF)                       | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Interpol](https://www.last.fm/music/Interpol)                                                             | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 25-07-2023 12:27:02 UTC
+🚀 **Última atualização:** 25-07-2023 15:27:02 UTC
