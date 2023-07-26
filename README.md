@@ -38,8 +38,8 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 1º [スキマスイッチ](https://www.last.fm/music/%E3%82%B9%E3%82%AD%E3%83%9E%E3%82%B9%E3%82%A4%E3%83%83%E3%83%81) | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
 | 2º [いきものがかり](https://www.last.fm/music/%E3%81%84%E3%81%8D%E3%82%82%E3%81%AE%E3%81%8C%E3%81%8B%E3%82%8A) | A Arte da Guerra	–	_Sun Tzu_                                        |
 | 3º [中川翔子](https://www.last.fm/music/%E4%B8%AD%E5%B7%9D%E7%BF%94%E5%AD%90)                                  | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [Kings of Leon](https://www.last.fm/music/Kings+of+Leon)                                                    | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [Gorillaz](https://www.last.fm/music/Gorillaz)                                                              | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 4º [Gorillaz](https://www.last.fm/music/Gorillaz)                                                              | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Kings of Leon](https://www.last.fm/music/Kings+of+Leon)                                                    | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [My Chemical Romance](https://www.last.fm/music/My+Chemical+Romance)                                        | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 | 7º [宇宙ネコ子](https://www.last.fm/music/%E5%AE%87%E5%AE%99%E3%83%8D%E3%82%B3%E5%AD%90)                       | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
 | 8º [林原めぐみ](https://www.last.fm/music/%E6%9E%97%E5%8E%9F%E3%82%81%E3%81%90%E3%81%BF)                       | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
@@ -49,4 +49,4 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ---
 
-🚀 **Última atualização:** 26-07-2023 18:27:03 UTC
+🚀 **Última atualização:** 26-07-2023 21:27:02 UTC
