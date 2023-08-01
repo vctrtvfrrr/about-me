@@ -42,11 +42,11 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 | 5º [MASS OF THE FERMENTING DREGS](https://www.last.fm/music/MASS+OF+THE+FERMENTING+DREGS)                                            | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
 | 6º [OGRE YOU ASSHOLE](https://www.last.fm/music/OGRE+YOU+ASSHOLE)                                                                    | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
 | 7º [ポルノグラフィティ](https://www.last.fm/music/%E3%83%9D%E3%83%AB%E3%83%8E%E3%82%B0%E3%83%A9%E3%83%95%E3%82%A3%E3%83%86%E3%82%A3) | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [中川翔子](https://www.last.fm/music/%E4%B8%AD%E5%B7%9D%E7%BF%94%E5%AD%90)                                                        | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [aiko](https://www.last.fm/music/aiko)                                                                                            | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Superfly](https://www.last.fm/music/Superfly)                                                                                   | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 8º [aiko](https://www.last.fm/music/aiko)                                                                                            | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Superfly](https://www.last.fm/music/Superfly)                                                                                    | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [ヒグチアイ](https://www.last.fm/music/%E3%83%92%E3%82%B0%E3%83%81%E3%82%A2%E3%82%A4)                                            | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 01-08-2023 03:27:02 UTC
+🚀 **Última atualização:** 01-08-2023 12:27:01 UTC
