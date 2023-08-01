@@ -11,7 +11,7 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 ## Informações
 
 - **Nome:** Victor Otávio Ferreira
-- **Idade:** 30 anos
+- **Idade:** 31 anos
 - **Localização:** Curitiba/PR
 
 [![](https://img.shields.io/badge/LinkedIn-victorotavio-blue)](https://www.linkedin.com/in/victorotavio/) [![](https://img.shields.io/badge/Twitter-@vctrtvfrrr-blue)](https://twitter.com/vctrtvfrrr)  
@@ -49,4 +49,4 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ---
 
-🚀 **Última atualização:** 01-08-2023 00:27:01 UTC
+🚀 **Última atualização:** 01-08-2023 03:27:02 UTC
