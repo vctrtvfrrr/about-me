@@ -36,17 +36,17 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 |                                                        🎧 Artistas da semana                                                         |                      📚 Últimos livros lidos                      |
 |--------------------------------------------------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
 | 1º [きのこ帝国](https://www.last.fm/music/%E3%81%8D%E3%81%AE%E3%81%93%E5%B8%9D%E5%9B%BD)                                             | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [L'Arc~en~Ciel](https://www.last.fm/music/L%27Arc~en~Ciel)                                                                        | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [MASS OF THE FERMENTING DREGS](https://www.last.fm/music/MASS+OF+THE+FERMENTING+DREGS)                                            | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [OGRE YOU ASSHOLE](https://www.last.fm/music/OGRE+YOU+ASSHOLE)                                                                    | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [スキマスイッチ](https://www.last.fm/music/%E3%82%B9%E3%82%AD%E3%83%9E%E3%82%B9%E3%82%A4%E3%83%83%E3%83%81)                       | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [ポルノグラフィティ](https://www.last.fm/music/%E3%83%9D%E3%83%AB%E3%83%8E%E3%82%B0%E3%83%A9%E3%83%95%E3%82%A3%E3%83%86%E3%82%A3) | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [Superfly](https://www.last.fm/music/Superfly)                                                                                    | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [ヒグチアイ](https://www.last.fm/music/%E3%83%92%E3%82%B0%E3%83%81%E3%82%A2%E3%82%A4)                                             | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [aiko](https://www.last.fm/music/aiko)                                                                                            | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [For Tracy Hyde](https://www.last.fm/music/For+Tracy+Hyde)                                                                       | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+| 2º [Kansas](https://www.last.fm/music/Kansas)                                                                                        | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [L'Arc~en~Ciel](https://www.last.fm/music/L%27Arc~en~Ciel)                                                                        | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [ポルノグラフィティ](https://www.last.fm/music/%E3%83%9D%E3%83%AB%E3%83%8E%E3%82%B0%E3%83%A9%E3%83%95%E3%82%A3%E3%83%86%E3%82%A3) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [ヒグチアイ](https://www.last.fm/music/%E3%83%92%E3%82%B0%E3%83%81%E3%82%A2%E3%82%A4)                                             | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [For Tracy Hyde](https://www.last.fm/music/For+Tracy+Hyde)                                                                        | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [MASS OF THE FERMENTING DREGS](https://www.last.fm/music/MASS+OF+THE+FERMENTING+DREGS)                                            | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Regal Lily](https://www.last.fm/music/Regal+Lily)                                                                                | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Shibayan](https://www.last.fm/music/Shibayan)                                                                                    | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [Skirt&PUNPEE](https://www.last.fm/music/Skirt&PUNPEE)                                                                           | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 02-08-2023 12:27:02 UTC
+🚀 **Última atualização:** 03-08-2023 12:27:02 UTC
