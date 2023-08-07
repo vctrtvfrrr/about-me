@@ -33,20 +33,20 @@ Atualmente moro em Curitiba/PR. Tenho minha própria empresa, a Henesys CodeLab,
 
 ## O que eu tenho feito
 
-|                                                        🎧 Artistas da semana                                                         |                      📚 Últimos livros lidos                      |
-|--------------------------------------------------------------------------------------------------------------------------------------|-------------------------------------------------------------------|
-| 1º [きのこ帝国](https://www.last.fm/music/%E3%81%8D%E3%81%AE%E3%81%93%E5%B8%9D%E5%9B%BD)                                             | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
-| 2º [Kansas](https://www.last.fm/music/Kansas)                                                                                        | A Arte da Guerra	–	_Sun Tzu_                                        |
-| 3º [L'Arc~en~Ciel](https://www.last.fm/music/L%27Arc~en~Ciel)                                                                        | O Príncipe	–	_Nicolau Maquiavel_                                    |
-| 4º [ポルノグラフィティ](https://www.last.fm/music/%E3%83%9D%E3%83%AB%E3%83%8E%E3%82%B0%E3%83%A9%E3%83%95%E3%82%A3%E3%83%86%E3%82%A3) | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
-| 5º [ヒグチアイ](https://www.last.fm/music/%E3%83%92%E3%82%B0%E3%83%81%E3%82%A2%E3%82%A4)                                             | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
-| 6º [For Tracy Hyde](https://www.last.fm/music/For+Tracy+Hyde)                                                                        | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
-| 7º [MASS OF THE FERMENTING DREGS](https://www.last.fm/music/MASS+OF+THE+FERMENTING+DREGS)                                            | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
-| 8º [Regal Lily](https://www.last.fm/music/Regal+Lily)                                                                                | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
-| 9º [Shibayan](https://www.last.fm/music/Shibayan)                                                                                    | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
-| 10º [Skirt&PUNPEE](https://www.last.fm/music/Skirt&PUNPEE)                                                                           | O imbecil coletivo	–	_Olavo de Carvalho_                            |
+|                         🎧 Artistas da semana                          |                      📚 Últimos livros lidos                      |
+|------------------------------------------------------------------------|-------------------------------------------------------------------|
+| 1º [Kansas](https://www.last.fm/music/Kansas)                          | Ensinando O Trivium - Volume 1	–	_Harvey E Laurie Bluedorn_         |
+| 2º [L'Arc~en~Ciel](https://www.last.fm/music/L%27Arc~en~Ciel)          | A Arte da Guerra	–	_Sun Tzu_                                        |
+| 3º [Radiohead](https://www.last.fm/music/Radiohead)                    | O Príncipe	–	_Nicolau Maquiavel_                                    |
+| 4º [Guns N' Roses](https://www.last.fm/music/Guns+N%27+Roses)          | D. Leopoldina: a história não contada: A mulh…	–	_Paulo Rezzutti_   |
+| 5º [Coldplay](https://www.last.fm/music/Coldplay)                      | 1822 – Como um homem sábio, uma princesa tri…	–	_Laurentino Gomes_  |
+| 6º [R.E.M.](https://www.last.fm/music/R.E.M.)                          | 1808 – Como uma rainha louca, um príncipe me…	–	_Laurentino Gomes_  |
+| 7º [The Cranberries](https://www.last.fm/music/The+Cranberries)        | 1565: Enquanto o Brasil nascia: A aventura de p…	–	_Pedro Doria_    |
+| 8º [Toto](https://www.last.fm/music/Toto)                              | O Mínimo que Você Precisa Saber para não Ser…	–	_Olavo de Carvalho_ |
+| 9º [Green Day](https://www.last.fm/music/Green+Day)                    | Odisséia	–	_Homero (trad. Carlos Alberto Nunes)_                    |
+| 10º [The Rolling Stones](https://www.last.fm/music/The+Rolling+Stones) | O imbecil coletivo	–	_Olavo de Carvalho_                            |
 
 
 ---
 
-🚀 **Última atualização:** 03-08-2023 12:27:02 UTC
+🚀 **Última atualização:** 07-08-2023 18:27:02 UTC
